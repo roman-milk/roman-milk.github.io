@@ -1,5 +1,7 @@
-The Corner Pt. 01
-=================
+---
+layout: page
+title: The Corner Pt. 01
+---
 #1 
 
 ===

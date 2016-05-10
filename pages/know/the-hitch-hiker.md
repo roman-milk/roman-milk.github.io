@@ -1,5 +1,7 @@
-The Hitch Hiker: Alice 01
-=========================
+---
+layout: page
+title: The Hitch Hiker: Alice 01
+---
 #1 
 
 ===

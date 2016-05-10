@@ -1,5 +1,7 @@
-The Sure Thing
-=====================
+---
+layout: page
+title: The Sure Thing
+---
 #1 
 
 ===

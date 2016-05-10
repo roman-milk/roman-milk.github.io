@@ -1,5 +1,7 @@
-Polly's Past
-============
+---
+layout: page
+title: Polly's Past
+---
 #1 
 
 ===

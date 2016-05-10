@@ -1,5 +1,7 @@
-The Boys at the Frat House
-==========================
+---
+layout: page
+title: The Boys at the Frat House
+---
 #1 
 
 ===

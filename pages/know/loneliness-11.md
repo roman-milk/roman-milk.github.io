@@ -1,5 +1,7 @@
-Loneliness
-==========
+---
+layout: page
+title: Loneliness
+---
 #1 
 
 ===

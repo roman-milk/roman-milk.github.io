@@ -1,5 +1,7 @@
-&quot;Moms &amp; Daughters&quot;: A Family Affair
-=================================================
+---
+layout: page
+title: &quot;Moms &amp; Daughters&quot;: A Family Affair
+---
 #1 
 
 ===

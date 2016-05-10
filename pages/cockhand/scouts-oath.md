@@ -1,5 +1,7 @@
-Scout's Oath
-============
+---
+layout: page
+title: Scout's Oath
+---
 #1 
 
 ===

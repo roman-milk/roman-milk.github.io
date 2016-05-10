@@ -1,5 +1,7 @@
-Beth's Beautiful Blackmail
-==========================
+---
+layout: page
+title: Beth's Beautiful Blackmail
+---
 #1 
 
 ===

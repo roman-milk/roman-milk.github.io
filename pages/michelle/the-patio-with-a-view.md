@@ -1,5 +1,7 @@
-The Patio With a View
-=====================
+---
+layout: page
+title: The Patio With a View
+---
 #1 
 
 ===

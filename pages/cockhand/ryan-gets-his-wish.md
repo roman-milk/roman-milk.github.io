@@ -1,5 +1,7 @@
-Ryan Gets His Wish
-==================
+---
+layout: page
+title: Ryan Gets His Wish
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-My Whores
-=========
+---
+layout: page
+title: My Whores
+---
 #1 
 
 ===

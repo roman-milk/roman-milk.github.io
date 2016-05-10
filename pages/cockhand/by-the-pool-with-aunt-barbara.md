@@ -1,5 +1,7 @@
-By the Pool with Aunt Barbara
-=============================
+---
+layout: page
+title: By the Pool with Aunt Barbara
+---
 #1 
 
 ===

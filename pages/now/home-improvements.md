@@ -1,5 +1,7 @@
-Home Improvements
-=================
+---
+layout: page
+title: Home Improvements
+---
 #1 
 
 ===

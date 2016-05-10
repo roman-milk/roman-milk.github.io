@@ -1,5 +1,7 @@
-Going To Mary's
-===============
+---
+layout: page
+title: Going To Mary's
+---
 #1 
 
 ===

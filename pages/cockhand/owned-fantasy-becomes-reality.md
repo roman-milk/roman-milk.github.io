@@ -1,5 +1,7 @@
-Owned:Fantasy Becomes Reality
-=============================
+---
+layout: page
+title: Owned:Fantasy Becomes Reality
+---
 #1 
 
 ===

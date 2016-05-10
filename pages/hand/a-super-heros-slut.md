@@ -1,5 +1,7 @@
-A Super Hero's Slut
-==========================
+---
+layout: page
+title: A Super Hero's Slut
+---
 #1 
 
 ===

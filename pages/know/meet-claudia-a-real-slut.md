@@ -1,5 +1,7 @@
-Meet Claudia, A Real Slut
-=========================
+---
+layout: page
+title: Meet Claudia, A Real Slut
+---
 #1 
 
 ===

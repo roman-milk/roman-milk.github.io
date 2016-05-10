@@ -1,5 +1,7 @@
-Porn Night
-==========
+---
+layout: page
+title: Porn Night
+---
 #1 
 
 ===

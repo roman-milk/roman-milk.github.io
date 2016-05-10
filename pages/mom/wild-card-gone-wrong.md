@@ -1,5 +1,7 @@
-Wild Card Gone Wrong
-====================
+---
+layout: page
+title: Wild Card Gone Wrong
+---
 #1 
 
 ===

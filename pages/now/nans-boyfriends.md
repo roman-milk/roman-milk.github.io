@@ -1,5 +1,7 @@
-Nan's Boyfriends
-================
+---
+layout: page
+title: Nan's Boyfriends
+---
 #1 
 
 ===

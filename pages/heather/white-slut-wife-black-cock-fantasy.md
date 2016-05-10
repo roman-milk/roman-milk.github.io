@@ -1,5 +1,7 @@
-White Slut Wife: Black Cock Fantasy
-===================================
+---
+layout: page
+title: White Slut Wife: Black Cock Fantasy
+---
 #1 
 
 ===

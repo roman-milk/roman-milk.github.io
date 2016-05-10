@@ -1,5 +1,7 @@
-Shelly's Story
-==============
+---
+layout: page
+title: Shelly's Story
+---
 #1 
 
 ===

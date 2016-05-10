@@ -1,5 +1,7 @@
-Lonely Womans Fantasy
-============================
+---
+layout: page
+title: Lonely Womans Fantasy
+---
 #1 
 
 ===

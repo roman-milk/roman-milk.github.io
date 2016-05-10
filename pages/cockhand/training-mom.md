@@ -1,5 +1,7 @@
-Training Mom
-============
+---
+layout: page
+title: Training Mom
+---
 #1 
 
 ===

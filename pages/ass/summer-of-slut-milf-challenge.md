@@ -1,5 +1,7 @@
-Summer of Slut: MILF Challenge
-==============================
+---
+layout: page
+title: Summer of Slut: MILF Challenge
+---
 #1 
 
 ===

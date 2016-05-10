@@ -1,5 +1,7 @@
-Babysitting Trouble
-==========================
+---
+layout: page
+title: Babysitting Trouble
+---
 #1  
 
 ===

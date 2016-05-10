@@ -1,5 +1,7 @@
-George and Shawna
-========================
+---
+layout: page
+title: George and Shawna
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming A Slut Husband: George
-===============================
+---
+layout: page
+title: Becoming A Slut Husband: George
+---
 #1 
 
 ===

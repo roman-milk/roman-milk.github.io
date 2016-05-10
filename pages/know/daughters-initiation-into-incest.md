@@ -1,5 +1,7 @@
-Daughter's Initiation into Incest
-=================================
+---
+layout: page
+title: Daughter's Initiation into Incest
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Hard Body Clerk's New Beginning
-==========================================
+---
+layout: page
+title: The Hard Body Clerk's New Beginning
+---
 #1 
 
 ===

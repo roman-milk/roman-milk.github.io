@@ -1,5 +1,7 @@
-How Hannah and I Got Together
-=============================
+---
+layout: page
+title: How Hannah and I Got Together
+---
 #1 
 
 ===

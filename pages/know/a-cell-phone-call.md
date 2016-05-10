@@ -1,5 +1,7 @@
-A Cell Phone Call
-=================
+---
+layout: page
+title: A Cell Phone Call
+---
 #1 
 
 ===

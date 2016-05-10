@@ -1,5 +1,7 @@
-Sis-in-Law Pays the Price
-=========================
+---
+layout: page
+title: Sis-in-Law Pays the Price
+---
 #1 
 
 ===

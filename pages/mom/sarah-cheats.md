@@ -1,5 +1,7 @@
-Sarah Cheats
-============
+---
+layout: page
+title: Sarah Cheats
+---
 #1 
 
 ===

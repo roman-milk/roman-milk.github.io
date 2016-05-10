@@ -1,5 +1,7 @@
-Triad Project: An Elegant Seduction
-===================================
+---
+layout: page
+title: Triad Project: An Elegant Seduction
+---
 #1 
 
 ===

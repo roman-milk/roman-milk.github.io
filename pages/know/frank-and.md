@@ -1,5 +1,7 @@
-Frank and Cookie
-================
+---
+layout: page
+title: Frank and Cookie
+---
 #1 
 
 ===

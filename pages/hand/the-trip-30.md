@@ -1,5 +1,7 @@
-The Trip
-========
+---
+layout: page
+title: The Trip
+---
 #1 
 
 ===

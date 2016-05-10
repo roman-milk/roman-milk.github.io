@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Bailey
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Bailey
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Eleven Years Later
-==================
+---
+layout: page
+title: Eleven Years Later
+---
 #1 
 
 ===

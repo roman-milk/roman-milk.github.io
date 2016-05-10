@@ -1,5 +1,7 @@
-Carla's Revenge
-===============
+---
+layout: page
+title: Carla's Revenge
+---
 #1 
 
 ===

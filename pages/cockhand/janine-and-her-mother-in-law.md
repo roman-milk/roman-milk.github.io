@@ -1,5 +1,7 @@
-Janine and Her Mother in Law
-============================
+---
+layout: page
+title: Janine and Her Mother in Law
+---
 #1 
 
 ===

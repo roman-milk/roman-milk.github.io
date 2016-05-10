@@ -1,5 +1,7 @@
-Sandi's Mistake
-===============
+---
+layout: page
+title: Sandi's Mistake
+---
 #1 
 
 ===

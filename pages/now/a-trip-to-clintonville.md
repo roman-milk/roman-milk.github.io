@@ -1,5 +1,7 @@
-A Trip to Clintonville
-======================
+---
+layout: page
+title: A Trip to Clintonville
+---
 #1 
 
 ===

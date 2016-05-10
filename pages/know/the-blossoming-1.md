@@ -1,5 +1,7 @@
-The Blossoming
-==============
+---
+layout: page
+title: The Blossoming
+---
 #1 
 
 ===

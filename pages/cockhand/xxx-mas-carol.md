@@ -1,5 +1,7 @@
-XXX-Mas Carol
-=============
+---
+layout: page
+title: XXX-Mas Carol
+---
 #1 
 
 ===

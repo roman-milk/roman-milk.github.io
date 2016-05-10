@@ -1,5 +1,7 @@
-The Neighbor's Wife
-===================
+---
+layout: page
+title: The Neighbor's Wife
+---
 #1 
 
 ===

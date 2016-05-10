@@ -1,5 +1,7 @@
-The Apartment
-=============
+---
+layout: page
+title: The Apartment
+---
 #1 
 
 ===

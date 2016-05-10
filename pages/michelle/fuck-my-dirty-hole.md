@@ -1,5 +1,7 @@
-Fuck My Dirty-Hole
-==================
+---
+layout: page
+title: Fuck My Dirty-Hole
+---
 #1 
 
 ===

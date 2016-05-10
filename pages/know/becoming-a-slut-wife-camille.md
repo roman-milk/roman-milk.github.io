@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Camille
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Camille
+---
 #1 
 
 ===

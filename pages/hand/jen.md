@@ -1,5 +1,7 @@
-Jen
-==========
+---
+layout: page
+title: Jen
+---
 #1 
 
 ===

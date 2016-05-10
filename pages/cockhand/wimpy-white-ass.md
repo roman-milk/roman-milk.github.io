@@ -1,5 +1,7 @@
-Wimpy White Ass
-===============
+---
+layout: page
+title: Wimpy White Ass
+---
 #1 
 
 ===

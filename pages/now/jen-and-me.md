@@ -1,5 +1,7 @@
-Jen &amp; Me: Sis-In-Law Rewards
-================================
+---
+layout: page
+title: Jen &amp; Me: Sis-In-Law Rewards
+---
 #1 
 
 ===

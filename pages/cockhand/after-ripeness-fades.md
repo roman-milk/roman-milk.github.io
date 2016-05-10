@@ -1,5 +1,7 @@
-After Ripeness Fades
-====================
+---
+layout: page
+title: After Ripeness Fades
+---
 #1 
 
 ===

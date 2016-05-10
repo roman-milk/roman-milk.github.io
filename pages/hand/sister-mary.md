@@ -1,5 +1,7 @@
-Sister Mary
-===========
+---
+layout: page
+title: Sister Mary
+---
 #1 
 
 ===

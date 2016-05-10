@@ -1,5 +1,7 @@
-Proper Housewife to Slut in One Day
-===================================
+---
+layout: page
+title: Proper Housewife to Slut in One Day
+---
 #1 
 
 ===

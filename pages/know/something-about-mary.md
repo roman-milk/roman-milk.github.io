@@ -1,5 +1,7 @@
-Something About Mary
-====================
+---
+layout: page
+title: Something About Mary
+---
 #1 
 
 ===

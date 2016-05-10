@@ -1,5 +1,7 @@
-A Great Day
-===========
+---
+layout: page
+title: A Great Day
+---
 #1 
 
 ===

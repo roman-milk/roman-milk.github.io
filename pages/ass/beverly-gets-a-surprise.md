@@ -1,5 +1,7 @@
-Beverly Gets a Surprise
-=======================
+---
+layout: page
+title: Beverly Gets a Surprise
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Week With Mother
-==================
+---
+layout: page
+title: A Week With Mother
+---
 #1 
 
 ===

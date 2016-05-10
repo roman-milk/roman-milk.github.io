@@ -1,5 +1,7 @@
-A Shed, Summer, and Scarborough
-===============================
+---
+layout: page
+title: A Shed, Summer, and Scarborough
+---
 #1 
 
 ===

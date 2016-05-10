@@ -1,5 +1,7 @@
-Mother Takes the Cream
-======================
+---
+layout: page
+title: Mother Takes the Cream
+---
 #1 
 
 ===

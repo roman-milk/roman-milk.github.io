@@ -1,5 +1,7 @@
-Leslie Proves Her Point
-=======================
+---
+layout: page
+title: Leslie Proves Her Point
+---
 #1 
 
 ===

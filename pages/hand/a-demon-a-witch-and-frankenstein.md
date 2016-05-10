@@ -1,5 +1,7 @@
-A Demon, A Witch and Frankenstein
-=================================
+---
+layout: page
+title: A Demon, A Witch and Frankenstein
+---
 #1 
 
 ===

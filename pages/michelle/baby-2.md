@@ -1,5 +1,7 @@
-Baby
-====
+---
+layout: page
+title: Baby
+---
 #1 
 
 ===

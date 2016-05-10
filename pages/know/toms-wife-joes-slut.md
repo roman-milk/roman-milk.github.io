@@ -1,5 +1,7 @@
-Tom's Wife, Joe's Slut
-=============================
+---
+layout: page
+title: Tom's Wife, Joe's Slut
+---
 #1 
 
 ===

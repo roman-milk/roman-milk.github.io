@@ -1,5 +1,7 @@
-In Plane View
-=============
+---
+layout: page
+title: In Plane View
+---
 #1 
 
 ===

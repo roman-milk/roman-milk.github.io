@@ -1,5 +1,7 @@
-Nude with Mum in the Sun
-========================
+---
+layout: page
+title: Nude with Mum in the Sun
+---
 #1 
 
 ===

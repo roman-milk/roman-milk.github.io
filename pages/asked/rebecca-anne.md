@@ -1,5 +1,7 @@
-Rebecca Anne
-============
+---
+layout: page
+title: Rebecca Anne
+---
 #1 
 
 ===

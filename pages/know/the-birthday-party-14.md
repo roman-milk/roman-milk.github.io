@@ -1,5 +1,7 @@
-The Birthday Party
-==================
+---
+layout: page
+title: The Birthday Party
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-For The Love of Adele
-=====================
+---
+layout: page
+title: For The Love of Adele
+---
 #1 
 
 ===

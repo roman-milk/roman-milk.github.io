@@ -1,5 +1,7 @@
-Not So Fun Games
-=======================
+---
+layout: page
+title: Not So Fun Games
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Eric and Sarah
-==============
+---
+layout: page
+title: Eric and Sarah
+---
 #1 
 
 ===

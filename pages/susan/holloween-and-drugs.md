@@ -1,5 +1,7 @@
-Holloween and Drugs
-===================
+---
+layout: page
+title: Holloween and Drugs
+---
 #1 
 
 ===

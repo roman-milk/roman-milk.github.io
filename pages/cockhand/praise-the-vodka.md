@@ -1,5 +1,7 @@
-Praise the Vodka
-================
+---
+layout: page
+title: Praise the Vodka
+---
 #1 
 
 ===

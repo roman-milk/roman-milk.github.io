@@ -1,5 +1,7 @@
-Michael's Wife Goes Into Business
-=================================
+---
+layout: page
+title: Michael's Wife Goes Into Business
+---
 #1 
 
 ===

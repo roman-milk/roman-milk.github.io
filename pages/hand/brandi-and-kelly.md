@@ -1,5 +1,7 @@
-Brandi and Kelly
-=======================
+---
+layout: page
+title: Brandi and Kelly
+---
 #1 
 
 ===

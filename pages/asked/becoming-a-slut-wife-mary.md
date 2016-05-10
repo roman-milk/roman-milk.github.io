@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mary
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Mary
+---
 #1 
 
 ===

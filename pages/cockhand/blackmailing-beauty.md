@@ -1,5 +1,7 @@
-Blackmailing Beauty
-===================
+---
+layout: page
+title: Blackmailing Beauty
+---
 #1 
 
 ===

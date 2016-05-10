@@ -1,5 +1,7 @@
-Savior
-======
+---
+layout: page
+title: Savior
+---
 #1 
 
 ===

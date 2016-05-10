@@ -1,5 +1,7 @@
-MoNica's Hormone Pills
-======================
+---
+layout: page
+title: MoNica's Hormone Pills
+---
 #1 
 
 ===

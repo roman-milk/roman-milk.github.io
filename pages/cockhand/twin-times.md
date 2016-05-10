@@ -1,5 +1,7 @@
-Twin Times
-=================
+---
+layout: page
+title: Twin Times
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Stalking Horse
-==================
+---
+layout: page
+title: The Stalking Horse
+---
 #1 
 
 ===

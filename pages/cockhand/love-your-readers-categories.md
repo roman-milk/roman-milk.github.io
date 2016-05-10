@@ -1,5 +1,7 @@
-Love Your Readers: Categories
-=============================
+---
+layout: page
+title: Love Your Readers: Categories
+---
 #1 
 
 ===

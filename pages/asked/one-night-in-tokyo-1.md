@@ -1,5 +1,7 @@
-One Night In Tokyo
-==================
+---
+layout: page
+title: One Night In Tokyo
+---
 #1 
 
 ===

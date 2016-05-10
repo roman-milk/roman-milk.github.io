@@ -1,5 +1,7 @@
-Teacher's Confused Mind
-==============================
+---
+layout: page
+title: Teacher's Confused Mind
+---
 #1 
 
 ===

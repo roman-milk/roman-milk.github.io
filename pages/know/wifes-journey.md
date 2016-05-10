@@ -1,5 +1,7 @@
-A Wife's Submissive Journey
-===========================
+---
+layout: page
+title: A Wife's Submissive Journey
+---
 A Wife's Submissive Journey
 ===========================
 

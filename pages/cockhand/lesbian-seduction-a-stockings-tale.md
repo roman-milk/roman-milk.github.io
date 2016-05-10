@@ -1,5 +1,7 @@
-Lesbian Seduction: A Stockings Tale
-===================================
+---
+layout: page
+title: Lesbian Seduction: A Stockings Tale
+---
 #1 
 
 ===

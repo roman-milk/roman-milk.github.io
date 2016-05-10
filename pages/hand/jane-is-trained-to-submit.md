@@ -1,5 +1,7 @@
-Jane is Trained to Submit
-================================
+---
+layout: page
+title: Jane is Trained to Submit
+---
 #1 
 
 ===

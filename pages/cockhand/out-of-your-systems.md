@@ -1,5 +1,7 @@
-Out of Your Systems
-===================
+---
+layout: page
+title: Out of Your Systems
+---
 #1 
 
 ===

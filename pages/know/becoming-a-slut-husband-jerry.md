@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Jerry
-==============================
+---
+layout: page
+title: Becoming A Slut Husband: Jerry
+---
 #1 
 
 ===

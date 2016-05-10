@@ -1,5 +1,7 @@
-Witness to My Daughter's Debasement
-===================================
+---
+layout: page
+title: Witness to My Daughter's Debasement
+---
 #1 
 
 ===

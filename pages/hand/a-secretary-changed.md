@@ -1,5 +1,7 @@
-A Secretary Changed
-===================
+---
+layout: page
+title: A Secretary Changed
+---
 
 Yawn, stretch, eyes open. 
 

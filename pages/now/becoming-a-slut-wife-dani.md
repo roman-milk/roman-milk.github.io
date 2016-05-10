@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Dani
-==========================
+---
+layout: page
+title: Becoming a Slut Wife: Dani
+---
 #1 
 
 ===

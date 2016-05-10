@@ -1,5 +1,7 @@
-The New Lawn
-============
+---
+layout: page
+title: The New Lawn
+---
 #1 
 
 ===

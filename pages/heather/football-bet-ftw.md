@@ -1,5 +1,7 @@
-Football Bet FTW!
-=================
+---
+layout: page
+title: Football Bet FTW!
+---
 #1 
 
 ===

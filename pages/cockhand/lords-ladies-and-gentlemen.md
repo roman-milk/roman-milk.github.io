@@ -1,5 +1,7 @@
-Lords, Ladies &amp; Gentlemen Ch. 01-04
-=======================================
+---
+layout: page
+title: Lords, Ladies &amp; Gentlemen Ch. 01-04
+---
 #1 
 
 ===

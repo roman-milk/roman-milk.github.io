@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Louise
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Louise
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Text Trouble
-============
+---
+layout: page
+title: Text Trouble
+---
 #1 
 
 ===

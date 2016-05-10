@@ -1,5 +1,7 @@
-A Sibling Love Story
-====================
+---
+layout: page
+title: A Sibling Love Story
+---
 #1 
 
 ===

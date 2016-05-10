@@ -1,5 +1,7 @@
-Dr. Pound's Naughty Nurse Ch. 01-03
-===================================
+---
+layout: page
+title: Dr. Pound's Naughty Nurse Ch. 01-03
+---
 #1 
 
 ===

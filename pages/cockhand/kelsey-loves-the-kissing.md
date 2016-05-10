@@ -1,5 +1,7 @@
-Kelsey Loves the Kissing
-========================
+---
+layout: page
+title: Kelsey Loves the Kissing
+---
 #1 
 
 ===

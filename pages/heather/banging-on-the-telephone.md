@@ -1,5 +1,7 @@
-Banging on the Telephone
-========================
+---
+layout: page
+title: Banging on the Telephone
+---
 #1 
 
 ===

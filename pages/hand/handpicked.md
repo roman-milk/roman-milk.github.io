@@ -1,5 +1,7 @@
-Handpicked
-==========
+---
+layout: page
+title: Handpicked
+---
 #1 
 
 ===

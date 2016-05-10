@@ -1,5 +1,7 @@
-TxQ - The Temp
-==============
+---
+layout: page
+title: TxQ - The Temp
+---
 #1 
 
 ===

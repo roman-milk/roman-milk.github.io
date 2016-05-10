@@ -1,5 +1,7 @@
-An Awakening
-===================
+---
+layout: page
+title: An Awakening
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Private Dancer
-==============
+---
+layout: page
+title: Private Dancer
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Juanita
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Juanita
+---
 #1 
 
 ===

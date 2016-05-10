@@ -1,5 +1,7 @@
-Postage Stamp
-=============
+---
+layout: page
+title: Postage Stamp
+---
 #1 
 
 ===

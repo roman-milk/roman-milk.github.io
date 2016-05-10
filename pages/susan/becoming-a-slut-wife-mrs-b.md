@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mrs. B.
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Mrs. B.
+---
 #1 
 
 ===

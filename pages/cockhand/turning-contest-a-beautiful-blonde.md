@@ -1,5 +1,7 @@
-Turning Contest: A Beautiful Blonde
-===================================
+---
+layout: page
+title: Turning Contest: A Beautiful Blonde
+---
 #1 
 
 ===

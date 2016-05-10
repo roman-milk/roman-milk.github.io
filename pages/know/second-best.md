@@ -1,5 +1,7 @@
-Second Best
-===========
+---
+layout: page
+title: Second Best
+---
 #1 
 
 ===

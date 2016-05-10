@@ -1,5 +1,7 @@
-M&amp;M Kisses
-==============
+---
+layout: page
+title: M&amp;M Kisses
+---
 #1 
 
 ===

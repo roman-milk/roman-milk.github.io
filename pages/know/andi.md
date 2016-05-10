@@ -1,5 +1,7 @@
-Andi
-====
+---
+layout: page
+title: Andi
+---
 
 ===
 

@@ -1,5 +1,7 @@
-Iffy Gig
-========
+---
+layout: page
+title: Iffy Gig
+---
 #1 
 
 ===

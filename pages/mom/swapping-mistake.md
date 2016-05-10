@@ -1,5 +1,7 @@
-Swapping Mistake?
-=================
+---
+layout: page
+title: Swapping Mistake?
+---
 #1 
 
 ===

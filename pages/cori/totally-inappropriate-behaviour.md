@@ -1,5 +1,7 @@
-Totally Inappropriate Behaviour
-===============================
+---
+layout: page
+title: Totally Inappropriate Behaviour
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Wife Awoken
-====================
+---
+layout: page
+title: A Wife Awoken
+---
 #1 
 
 ===

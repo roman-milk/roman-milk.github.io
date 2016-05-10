@@ -1,5 +1,7 @@
-Goodbye Mellisa
-===============
+---
+layout: page
+title: Goodbye Mellisa
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Lisa Can Do It Better
-=====================
+---
+layout: page
+title: Lisa Can Do It Better
+---
 #1 
 
 ===

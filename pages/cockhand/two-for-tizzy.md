@@ -1,5 +1,7 @@
-Two For Tizzy
-=============
+---
+layout: page
+title: Two For Tizzy
+---
 #1 
 
 ===

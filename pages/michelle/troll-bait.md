@@ -1,5 +1,7 @@
-Troll Bait
-==========
+---
+layout: page
+title: Troll Bait
+---
 #1 
 
 ===

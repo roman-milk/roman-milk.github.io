@@ -1,5 +1,7 @@
-Mother's Soldier Boy
-===========================
+---
+layout: page
+title: Mother's Soldier Boy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-After Hours
-==================
+---
+layout: page
+title: After Hours
+---
 #1 
 
 ===

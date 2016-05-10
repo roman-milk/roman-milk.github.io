@@ -1,5 +1,7 @@
-Two Moms, Two Laps: Home Rules
-==============================
+---
+layout: page
+title: Two Moms, Two Laps: Home Rules
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Sherri and Gail
-===============
+---
+layout: page
+title: Sherri and Gail
+---
 #1 
 
 ===

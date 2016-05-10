@@ -1,5 +1,7 @@
-Catherine
-=========
+---
+layout: page
+title: Catherine
+---
 #1 
 
 ===

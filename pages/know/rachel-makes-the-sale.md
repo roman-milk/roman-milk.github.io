@@ -1,5 +1,7 @@
-Rachel Makes the Sale
-=====================
+---
+layout: page
+title: Rachel Makes the Sale
+---
 #1 
 
 ===

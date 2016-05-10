@@ -1,5 +1,7 @@
-Mind of Straight Married Cocksucker
-===================================
+---
+layout: page
+title: Mind of Straight Married Cocksucker
+---
 #1 
 
 ===

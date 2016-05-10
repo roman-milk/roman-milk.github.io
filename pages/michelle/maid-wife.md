@@ -1,5 +1,7 @@
-Maid Wife
-=========
+---
+layout: page
+title: Maid Wife
+---
 
 "Apart from that she wouldn't wear stockings and suspenders." Jim complained to Angus, a colleague in the office. It was one of a list of criticisms he voiced in complaint since she had phoned telling him she was leaving. The trip to the sub office was going well and Jim would soon be returning home, only to an empty apartment, which he wasn't looking forward to. 
 

@@ -1,5 +1,7 @@
-Mrs Jordan's Wedding Ring
-=========================
+---
+layout: page
+title: Mrs Jordan's Wedding Ring
+---
 #1 
 
 ===

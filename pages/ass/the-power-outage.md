@@ -1,5 +1,7 @@
-The Power Outage
-================
+---
+layout: page
+title: The Power Outage
+---
 #1 
 
 ===

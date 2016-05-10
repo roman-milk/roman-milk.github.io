@@ -1,5 +1,7 @@
-Greta
-=====
+---
+layout: page
+title: Greta
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Bride Submission: A Shocking Secret
-===================================
+---
+layout: page
+title: Bride Submission: A Shocking Secret
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Film Find
-=========
+---
+layout: page
+title: Film Find
+---
 #1 
 
 ===

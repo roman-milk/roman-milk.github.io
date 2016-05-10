@@ -1,5 +1,7 @@
-Lexy &amp; The Delivery Boy
-===========================
+---
+layout: page
+title: Lexy &amp; The Delivery Boy
+---
 #1 
 
 ===

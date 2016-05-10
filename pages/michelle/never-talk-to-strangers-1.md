@@ -1,5 +1,7 @@
-Never Talk To Strangers
-=======================
+---
+layout: page
+title: Never Talk To Strangers
+---
 #1 
 
 ===

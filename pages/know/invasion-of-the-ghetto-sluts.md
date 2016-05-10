@@ -1,5 +1,7 @@
-Invasion of the Ghetto Sluts
-============================
+---
+layout: page
+title: Invasion of the Ghetto Sluts
+---
 #1 
 
 ===

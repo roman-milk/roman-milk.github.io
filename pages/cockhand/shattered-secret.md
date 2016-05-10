@@ -1,5 +1,7 @@
-Shattered Secret
-================
+---
+layout: page
+title: Shattered Secret
+---
 #1 
 
 ===

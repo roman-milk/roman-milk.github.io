@@ -1,5 +1,7 @@
-Polly Plus Four
-===============
+---
+layout: page
+title: Polly Plus Four
+---
 #1 
 
 ===

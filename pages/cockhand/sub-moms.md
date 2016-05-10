@@ -1,5 +1,7 @@
-Submissive Soccer Moms: Rich Bitch
-==================================
+---
+layout: page
+title: Submissive Soccer Moms: Rich Bitch
+---
 #1 
 
 ===

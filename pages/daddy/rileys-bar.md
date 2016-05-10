@@ -1,5 +1,7 @@
-Riley's Bar
-==================
+---
+layout: page
+title: Riley's Bar
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Ginger's Hot Tub
-================
+---
+layout: page
+title: Ginger's Hot Tub
+---
 #1 
 
 ===

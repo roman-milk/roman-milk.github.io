@@ -1,5 +1,7 @@
-The Mating
-==========
+---
+layout: page
+title: The Mating
+---
 #1 
 
 ===

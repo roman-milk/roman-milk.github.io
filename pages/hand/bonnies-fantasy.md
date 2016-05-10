@@ -1,5 +1,7 @@
-Bonnie's Fantasy
-================
+---
+layout: page
+title: Bonnie's Fantasy
+---
 #1 
 
 ===

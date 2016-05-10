@@ -1,5 +1,7 @@
-Your Mom is Passed Out?
-=======================
+---
+layout: page
+title: Your Mom is Passed Out?
+---
 
 It was funny how over the summer my friends changed. With school out, the neighborhood became more important than the sports and popularity cliques, and this year it meant hanging out with Jerry Mallory more. Something I would NEVER do in school. He was a nerd and outcast, but he had his own group of weirdo gamers to hang out with, birds-of-a-feather and all that. 
 

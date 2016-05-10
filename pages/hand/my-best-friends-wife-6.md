@@ -1,5 +1,7 @@
-My Best Friend's Wife
-=====================
+---
+layout: page
+title: My Best Friend's Wife
+---
 #1 
 
 ===

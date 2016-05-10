@@ -1,5 +1,7 @@
-Teacher's Discipline
-===========================
+---
+layout: page
+title: Teacher's Discipline
+---
 #1 
 
 ===

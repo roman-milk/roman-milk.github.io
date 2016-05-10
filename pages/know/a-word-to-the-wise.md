@@ -1,5 +1,7 @@
-A Word to the Wise
-==================
+---
+layout: page
+title: A Word to the Wise
+---
 #1 
 
 ===

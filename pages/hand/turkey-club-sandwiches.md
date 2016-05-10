@@ -1,5 +1,7 @@
-Turkey Club Sandwiches
-======================
+---
+layout: page
+title: Turkey Club Sandwiches
+---
 #1 
 
 ===

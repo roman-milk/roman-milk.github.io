@@ -1,5 +1,7 @@
-The Cursed House of Crow
-========================
+---
+layout: page
+title: The Cursed House of Crow
+---
 #1 
 
 ===

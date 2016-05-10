@@ -1,5 +1,7 @@
-Blackmailing Marsha
-===================
+---
+layout: page
+title: Blackmailing Marsha
+---
 #1 
 
 ===

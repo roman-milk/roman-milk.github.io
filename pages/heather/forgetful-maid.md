@@ -1,5 +1,7 @@
-Forgetful Maid
-==============
+---
+layout: page
+title: Forgetful Maid
+---
 #1 
 
 ===

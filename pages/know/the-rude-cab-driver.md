@@ -1,5 +1,7 @@
-The Rude Cab Driver
-===================
+---
+layout: page
+title: The Rude Cab Driver
+---
 #1 
 
 ===

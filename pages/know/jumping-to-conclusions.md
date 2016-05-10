@@ -1,5 +1,7 @@
-Jumping to Conclusions
-======================
+---
+layout: page
+title: Jumping to Conclusions
+---
 #1 
 
 ===

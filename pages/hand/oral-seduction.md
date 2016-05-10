@@ -1,5 +1,7 @@
-Oral Seduction
-==============
+---
+layout: page
+title: Oral Seduction
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Belinda
-=======
+---
+layout: page
+title: Belinda
+---
 #1 
 
 ===

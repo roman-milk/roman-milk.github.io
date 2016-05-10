@@ -1,5 +1,7 @@
-The Grudge Fuck
-===============
+---
+layout: page
+title: The Grudge Fuck
+---
 #1 
 
 ===

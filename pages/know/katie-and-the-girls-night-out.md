@@ -1,5 +1,7 @@
-Katie and the Girls Night Out
-=============================
+---
+layout: page
+title: Katie and the Girls Night Out
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Nadine's Needs
-==============
+---
+layout: page
+title: Nadine's Needs
+---
 #1 
 
 ===

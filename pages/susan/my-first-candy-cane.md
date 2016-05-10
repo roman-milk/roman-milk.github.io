@@ -1,5 +1,7 @@
-My First Candy Cane
-===================
+---
+layout: page
+title: My First Candy Cane
+---
 #1 
 
 ===

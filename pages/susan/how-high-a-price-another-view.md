@@ -1,5 +1,7 @@
-How High a Price: Another View
-==============================
+---
+layout: page
+title: How High a Price: Another View
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Sarah Calls A Bluff
-===================
+---
+layout: page
+title: Sarah Calls A Bluff
+---
 #1 
 
 ===

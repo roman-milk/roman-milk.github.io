@@ -1,5 +1,7 @@
-Joyce &amp; Me
-==============
+---
+layout: page
+title: Joyce &amp; Me
+---
 #1 
 
 ===

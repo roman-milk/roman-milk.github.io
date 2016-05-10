@@ -1,5 +1,7 @@
-Red Riding Hood
-===============
+---
+layout: page
+title: Red Riding Hood
+---
 #1 
 
 ===

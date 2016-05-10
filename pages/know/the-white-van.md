@@ -1,5 +1,7 @@
-The White Van
-=============
+---
+layout: page
+title: The White Van
+---
 #1 
 
 ===

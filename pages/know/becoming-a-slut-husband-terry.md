@@ -1,5 +1,7 @@
-Becoming a Slut Husband: Terry
-==============================
+---
+layout: page
+title: Becoming a Slut Husband: Terry
+---
 #1 
 
 ===

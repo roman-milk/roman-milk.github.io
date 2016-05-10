@@ -1,5 +1,7 @@
-Settting Up Jackie
-==================
+---
+layout: page
+title: Settting Up Jackie
+---
 #1 
 
 ===

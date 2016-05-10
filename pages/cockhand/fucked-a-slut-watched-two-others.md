@@ -1,5 +1,7 @@
-Fucked a Slut, Watched Two Others
-=================================
+---
+layout: page
+title: Fucked a Slut, Watched Two Others
+---
 #1 
 
 ===

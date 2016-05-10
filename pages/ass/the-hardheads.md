@@ -1,5 +1,7 @@
-The Hardheads
-=============
+---
+layout: page
+title: The Hardheads
+---
 #1 
 
 ===

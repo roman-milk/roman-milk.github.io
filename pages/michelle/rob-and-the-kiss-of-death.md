@@ -1,5 +1,7 @@
-Rob and the Kiss of Death
-=========================
+---
+layout: page
+title: Rob and the Kiss of Death
+---
 #1 
 
 ===

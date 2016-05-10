@@ -1,5 +1,7 @@
-That Old House
-==============
+---
+layout: page
+title: That Old House
+---
 #1 
 
 ===

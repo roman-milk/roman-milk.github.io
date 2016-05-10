@@ -1,5 +1,7 @@
-Pool Payments
-====================
+---
+layout: page
+title: Pool Payments
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Bob and Jan
-===========
+---
+layout: page
+title: Bob and Jan
+---
 #1 
 
 ===

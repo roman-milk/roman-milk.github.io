@@ -1,5 +1,7 @@
-Restaurant
-=================
+---
+layout: page
+title: Restaurant
+---
 #1 
 
 ===

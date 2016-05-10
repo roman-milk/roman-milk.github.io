@@ -1,5 +1,7 @@
-Mary, Robert and the Prom
-=========================
+---
+layout: page
+title: Mary, Robert and the Prom
+---
 #1 
 
 ===

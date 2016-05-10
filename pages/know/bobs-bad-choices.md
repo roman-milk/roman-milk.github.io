@@ -1,5 +1,7 @@
-Bob's Bad Choices
-=================
+---
+layout: page
+title: Bob's Bad Choices
+---
 #1 
 
 ===

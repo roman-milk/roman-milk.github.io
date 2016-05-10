@@ -1,5 +1,7 @@
-Better Than It's Ever Been
-==========================
+---
+layout: page
+title: Better Than It's Ever Been
+---
 #1 
 
 ===

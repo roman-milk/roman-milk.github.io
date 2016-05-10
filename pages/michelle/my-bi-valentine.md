@@ -1,5 +1,7 @@
-My Bi Valentine
-===============
+---
+layout: page
+title: My Bi Valentine
+---
 #1 
 
 ===

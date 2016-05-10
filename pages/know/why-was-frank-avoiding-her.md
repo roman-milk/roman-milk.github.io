@@ -1,5 +1,7 @@
-Why Was Frank Avoiding Her
-==========================
+---
+layout: page
+title: Why Was Frank Avoiding Her
+---
 #1 
 
 ===

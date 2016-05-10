@@ -1,5 +1,7 @@
-Brian, Sarah and Eric
-=====================
+---
+layout: page
+title: Brian, Sarah and Eric
+---
 #1 #2 
 
 ===

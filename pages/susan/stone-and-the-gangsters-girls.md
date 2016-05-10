@@ -1,5 +1,7 @@
-Stone and the Gangster's Girls
-==============================
+---
+layout: page
+title: Stone and the Gangster's Girls
+---
 #1 
 
 ===

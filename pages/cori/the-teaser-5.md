@@ -1,5 +1,7 @@
-The Teaser
-==========
+---
+layout: page
+title: The Teaser
+---
 #1 
 
 ===

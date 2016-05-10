@@ -1,5 +1,7 @@
-Tess, Jane and Fred
-===================
+---
+layout: page
+title: Tess, Jane and Fred
+---
 #1 
 
 ===

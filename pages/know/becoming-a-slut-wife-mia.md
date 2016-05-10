@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mia
-=========================
+---
+layout: page
+title: Becoming A Slut Wife: Mia
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Daddy's Bad Girl
-================
+---
+layout: page
+title: Daddy's Bad Girl
+---
 #1 
 
 ===

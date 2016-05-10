@@ -1,5 +1,7 @@
-Speed
-=====
+---
+layout: page
+title: Speed
+---
 #1 
 
 ===

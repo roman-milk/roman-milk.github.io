@@ -1,5 +1,7 @@
-A Gift for Simone
-=================
+---
+layout: page
+title: A Gift for Simone
+---
 #1 
 
 ===

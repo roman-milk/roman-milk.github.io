@@ -1,5 +1,7 @@
-Molly Had Permission
-====================
+---
+layout: page
+title: Molly Had Permission
+---
 #1 
 
 ===

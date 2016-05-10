@@ -1,5 +1,7 @@
-Super Sunday
-============
+---
+layout: page
+title: Super Sunday
+---
 #1 
 
 ===

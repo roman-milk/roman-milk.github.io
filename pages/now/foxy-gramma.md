@@ -1,5 +1,7 @@
-Foxy Grandma
-===================
+---
+layout: page
+title: Foxy Grandma
+---
 #1 
 
 ===

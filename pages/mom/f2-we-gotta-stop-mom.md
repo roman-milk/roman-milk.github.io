@@ -1,5 +1,7 @@
-F2: We Gotta Stop Mom!
-======================
+---
+layout: page
+title: F2: We Gotta Stop Mom!
+---
 #1 
 
 ===

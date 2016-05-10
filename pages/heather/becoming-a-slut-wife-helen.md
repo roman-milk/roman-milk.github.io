@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Helen
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Helen
+---
 #1 
 
 ===

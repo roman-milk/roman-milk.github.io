@@ -1,5 +1,7 @@
-Gangbang Junkie
-===============
+---
+layout: page
+title: Gangbang Junkie
+---
 #1 
 
 ===

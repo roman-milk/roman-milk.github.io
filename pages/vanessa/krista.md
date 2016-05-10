@@ -1,5 +1,7 @@
-Krista
-======
+---
+layout: page
+title: Krista
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Ally - Born To Dominate Ch. 01-02
-=================================
+---
+layout: page
+title: Ally - Born To Dominate Ch. 01-02
+---
 #1 
 
 ===

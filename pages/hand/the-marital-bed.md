@@ -1,5 +1,7 @@
-The Marital Bed
-===============
+---
+layout: page
+title: The Marital Bed
+---
 #1 
 
 ===

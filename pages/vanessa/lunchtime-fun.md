@@ -1,5 +1,7 @@
-Lunchtime Fun
-=============
+---
+layout: page
+title: Lunchtime Fun
+---
 #1 #1 
 
 ===

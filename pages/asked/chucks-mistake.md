@@ -1,5 +1,7 @@
-Chuck's Mistake
-===============
+---
+layout: page
+title: Chuck's Mistake
+---
 #1 
 
 ===

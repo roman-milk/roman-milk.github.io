@@ -1,5 +1,7 @@
-Honey, Be A Good Slut, Fuck Him!
-================================
+---
+layout: page
+title: Honey, Be A Good Slut, Fuck Him!
+---
 #1 
 
 ===

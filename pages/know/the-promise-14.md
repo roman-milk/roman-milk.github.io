@@ -1,5 +1,7 @@
-The Promise
-===========
+---
+layout: page
+title: The Promise
+---
 #1 
 
 ===

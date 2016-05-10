@@ -1,5 +1,7 @@
-The Gypsy Blacksmith
-====================
+---
+layout: page
+title: The Gypsy Blacksmith
+---
 #1 
 
 ===

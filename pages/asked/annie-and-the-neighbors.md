@@ -1,5 +1,7 @@
-Annie and the Neighbors
-=======================
+---
+layout: page
+title: Annie and the Neighbors
+---
 #1 
 
 ===

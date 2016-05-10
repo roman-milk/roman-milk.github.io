@@ -1,5 +1,7 @@
-The Competition
-===============
+---
+layout: page
+title: The Competition
+---
 #1 
 
 ===

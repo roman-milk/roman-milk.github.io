@@ -1,5 +1,7 @@
-Sorority Submission
-===================
+---
+layout: page
+title: Sorority Submission
+---
 #1 
 
 ===

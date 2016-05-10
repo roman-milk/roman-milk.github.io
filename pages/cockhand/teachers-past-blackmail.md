@@ -1,5 +1,7 @@
-A Teacher's Past
-=======================
+---
+layout: page
+title: A Teacher's Past
+---
 #1 
 
 ===

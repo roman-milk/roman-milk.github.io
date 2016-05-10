@@ -1,5 +1,7 @@
-All-Inclusive Summer
-====================
+---
+layout: page
+title: All-Inclusive Summer
+---
 #1 
 
 ===

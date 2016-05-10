@@ -1,5 +1,7 @@
-Rob's Wedding
-=============
+---
+layout: page
+title: Rob's Wedding
+---
 #1 
 
 ===

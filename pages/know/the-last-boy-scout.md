@@ -1,5 +1,7 @@
-The Last Boy Scout
-=========================
+---
+layout: page
+title: The Last Boy Scout
+---
 #1 
 
 ===

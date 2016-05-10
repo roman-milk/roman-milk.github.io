@@ -1,5 +1,7 @@
-Shortcut Home
-=============
+---
+layout: page
+title: Shortcut Home
+---
 #1 
 
 ===

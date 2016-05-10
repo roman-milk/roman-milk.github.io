@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Bett
-==========================
+---
+layout: page
+title: Becoming a Slut Wife: Bett
+---
 #1 
 
 ===

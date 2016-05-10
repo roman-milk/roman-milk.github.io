@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Cora
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Cora
+---
 #1 
 
 ===

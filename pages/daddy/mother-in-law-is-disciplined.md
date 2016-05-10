@@ -1,5 +1,7 @@
-Mother-in-Law is Disciplined
-===================================
+---
+layout: page
+title: Mother-in-Law is Disciplined
+---
 #1 
 
 ===

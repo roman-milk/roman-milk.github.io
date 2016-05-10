@@ -1,5 +1,7 @@
-Ann Goes To Detroit
-===================
+---
+layout: page
+title: Ann Goes To Detroit
+---
 #1 
 
 ===

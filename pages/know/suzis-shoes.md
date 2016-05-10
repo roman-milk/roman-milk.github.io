@@ -1,5 +1,7 @@
-Suzi's Shoes
-============
+---
+layout: page
+title: Suzi's Shoes
+---
 #1 
 
 ===

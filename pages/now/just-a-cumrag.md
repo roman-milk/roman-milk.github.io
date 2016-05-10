@@ -1,5 +1,7 @@
-Just A Cumrag
-====================
+---
+layout: page
+title: Just A Cumrag
+---
 #1 
 
 ===

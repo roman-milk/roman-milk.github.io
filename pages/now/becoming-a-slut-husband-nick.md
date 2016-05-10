@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Nick
-=============================
+---
+layout: page
+title: Becoming A Slut Husband: Nick
+---
 #1 
 
 ===

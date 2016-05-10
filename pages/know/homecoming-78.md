@@ -1,5 +1,7 @@
-Homecoming
-==========
+---
+layout: page
+title: Homecoming
+---
 #1 
 
 ===

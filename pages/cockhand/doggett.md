@@ -1,5 +1,7 @@
-Doggett
-=======
+---
+layout: page
+title: Doggett
+---
 #1 
 
 ===

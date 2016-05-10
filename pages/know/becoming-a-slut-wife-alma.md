@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Alma
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Alma
+---
 #1 
 
 ===

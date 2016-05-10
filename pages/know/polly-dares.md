@@ -1,5 +1,7 @@
-Polly Dares
-===========
+---
+layout: page
+title: Polly Dares
+---
 #1 
 
 ===

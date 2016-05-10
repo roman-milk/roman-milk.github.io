@@ -1,5 +1,7 @@
-Ralph's Slut
-============
+---
+layout: page
+title: Ralph's Slut
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-What The Hell Was She Up To?
-============================
+---
+layout: page
+title: What The Hell Was She Up To?
+---
 #1 
 
 ===

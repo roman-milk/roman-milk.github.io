@@ -1,5 +1,7 @@
-Angie's Spa Visit
-=================
+---
+layout: page
+title: Angie's Spa Visit
+---
 #1 
 
 ===

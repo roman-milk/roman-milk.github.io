@@ -1,5 +1,7 @@
-The Sweet Seduction
-===================
+---
+layout: page
+title: The Sweet Seduction
+---
 #1 
 
 ===

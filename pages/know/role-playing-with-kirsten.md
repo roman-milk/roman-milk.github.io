@@ -1,5 +1,7 @@
-Role Playing With Kirsten
-=========================
+---
+layout: page
+title: Role Playing With Kirsten
+---
 #1 
 
 ===

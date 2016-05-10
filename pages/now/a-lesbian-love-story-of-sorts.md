@@ -1,5 +1,7 @@
-A Lesbian Love Story- of Sorts
-==============================
+---
+layout: page
+title: A Lesbian Love Story- of Sorts
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Patty Screws Up
-===============
+---
+layout: page
+title: Patty Screws Up
+---
 #1 
 
 ===

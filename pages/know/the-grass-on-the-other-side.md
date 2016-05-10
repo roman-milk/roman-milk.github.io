@@ -1,5 +1,7 @@
-The Grass on the Other Side
-===========================
+---
+layout: page
+title: The Grass on the Other Side
+---
 #1 
 
 ===

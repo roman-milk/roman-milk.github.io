@@ -1,5 +1,7 @@
-The Cline's Conquer Time
-===============================
+---
+layout: page
+title: The Cline's Conquer Time
+---
 #1 
 
 ===

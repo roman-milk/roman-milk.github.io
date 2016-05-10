@@ -1,5 +1,7 @@
-Kate's Punishment
-========================
+---
+layout: page
+title: Kate's Punishment
+---
 #1 
 
 ===

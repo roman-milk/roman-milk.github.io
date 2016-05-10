@@ -1,5 +1,7 @@
-Jasmine Fantasies: Pet Teacher
-==============================
+---
+layout: page
+title: Jasmine Fantasies: Pet Teacher
+---
 #1 
 
 ===

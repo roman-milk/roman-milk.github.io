@@ -1,5 +1,7 @@
-Payment for Services Rendered
-=============================
+---
+layout: page
+title: Payment for Services Rendered
+---
 #1 
 
 ===

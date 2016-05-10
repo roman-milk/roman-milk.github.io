@@ -1,5 +1,7 @@
-Mae Goes To Work
-================
+---
+layout: page
+title: Mae Goes To Work
+---
 #1 
 
 ===

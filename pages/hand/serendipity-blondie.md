@@ -1,5 +1,7 @@
-Serendipity: Blondie
-====================
+---
+layout: page
+title: Serendipity: Blondie
+---
 #1 
 
 ===

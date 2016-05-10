@@ -1,5 +1,7 @@
-Becoming a Slut Couple (Martin)
-===============================
+---
+layout: page
+title: Becoming a Slut Couple (Martin)
+---
 
 I sat on the edge of the bed and looked down at her napping and wondered about the way my life had changed. I got up and staggered into the bathroom and took a whiz surprised that she had left me enough strength to hold my dick and aim it. I washed my hands and as I dried them I looked in the mirror. What I saw was a decent looking - not great - but decent looking man of thirty-five in reasonably good shape. By no means movie star quality and yet in the past six months I'd had more pussy than I could handle. And I didn't understand it; not even a little bit. I remembered the day it all started. 
 

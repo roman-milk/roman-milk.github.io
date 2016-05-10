@@ -1,5 +1,7 @@
-Sunday Morning: 11am
-====================
+---
+layout: page
+title: Sunday Morning: 11am
+---
 #1 
 
 ===

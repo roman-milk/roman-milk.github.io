@@ -1,5 +1,7 @@
-Kat Finally Gets It From Daddy
-==============================
+---
+layout: page
+title: Kat Finally Gets It From Daddy
+---
 #1 
 
 ===

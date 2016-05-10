@@ -1,5 +1,7 @@
-Cynthia's Business Trips
-========================
+---
+layout: page
+title: Cynthia's Business Trips
+---
 #1 
 
 ===

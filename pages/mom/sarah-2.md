@@ -1,5 +1,7 @@
-Sarah
-=====
+---
+layout: page
+title: Sarah
+---
 #1 
 
 ===

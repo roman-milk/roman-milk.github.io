@@ -1,5 +1,7 @@
-Out of Thin Air
-======================
+---
+layout: page
+title: Out of Thin Air
+---
 #1 
 
 ===

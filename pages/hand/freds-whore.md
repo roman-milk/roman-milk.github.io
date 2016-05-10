@@ -1,5 +1,7 @@
-Fred's Whore
-============
+---
+layout: page
+title: Fred's Whore
+---
 #1 
 
 ===

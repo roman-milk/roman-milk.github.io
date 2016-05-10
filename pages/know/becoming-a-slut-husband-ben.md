@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Ben
-============================
+---
+layout: page
+title: Becoming A Slut Husband: Ben
+---
 #1 
 
 ===

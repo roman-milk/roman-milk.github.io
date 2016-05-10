@@ -1,5 +1,7 @@
-Amy, Eric and Dion
-==================
+---
+layout: page
+title: Amy, Eric and Dion
+---
 #1 
 
 ===

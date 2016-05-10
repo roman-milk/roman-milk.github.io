@@ -1,5 +1,7 @@
-Just Another Day at the Office
-==============================
+---
+layout: page
+title: Just Another Day at the Office
+---
 #1 
 
 ===

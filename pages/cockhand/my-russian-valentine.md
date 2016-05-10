@@ -1,5 +1,7 @@
-My Russian Valentine
-====================
+---
+layout: page
+title: My Russian Valentine
+---
 #1 
 
 ===

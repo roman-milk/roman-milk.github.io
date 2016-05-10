@@ -1,5 +1,7 @@
-Nan and Big Dicks
-=================
+---
+layout: page
+title: Nan and Big Dicks
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Goddess of the Freaks
-=====================
+---
+layout: page
+title: Goddess of the Freaks
+---
 #1 
 
 ===

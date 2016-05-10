@@ -1,5 +1,7 @@
-A Cuckold, Two Blondes, and BBC
-===============================
+---
+layout: page
+title: A Cuckold, Two Blondes, and BBC
+---
 #1 
 
 ===

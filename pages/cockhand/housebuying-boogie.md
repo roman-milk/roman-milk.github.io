@@ -1,5 +1,7 @@
-Housebuying Boogie
-==================
+---
+layout: page
+title: Housebuying Boogie
+---
 #1 
 
 ===

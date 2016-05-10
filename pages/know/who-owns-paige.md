@@ -1,5 +1,7 @@
-Who Owns Paige?
-===============
+---
+layout: page
+title: Who Owns Paige?
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-John and Jackie
-===============
+---
+layout: page
+title: John and Jackie
+---
 #1 
 
 ===

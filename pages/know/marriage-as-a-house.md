@@ -1,5 +1,7 @@
-Marriage as a House
-===================
+---
+layout: page
+title: Marriage as a House
+---
 #1 
 
 ===

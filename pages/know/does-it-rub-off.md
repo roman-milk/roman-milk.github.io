@@ -1,5 +1,7 @@
-Does It Rub Off?
-================
+---
+layout: page
+title: Does It Rub Off?
+---
 #1 
 
 ===

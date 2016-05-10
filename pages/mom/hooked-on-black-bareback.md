@@ -1,5 +1,7 @@
-Hooked on Black Bareback
-========================
+---
+layout: page
+title: Hooked on Black Bareback
+---
 #1 
 
 ===

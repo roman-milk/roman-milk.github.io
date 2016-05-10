@@ -1,5 +1,7 @@
-Sticking It to Tony
-===================
+---
+layout: page
+title: Sticking It to Tony
+---
 #1 
 
 ===

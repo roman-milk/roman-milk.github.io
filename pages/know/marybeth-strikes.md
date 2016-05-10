@@ -1,5 +1,7 @@
-Marybeth Strikes
-================
+---
+layout: page
+title: Marybeth Strikes
+---
 #1 
 
 ===

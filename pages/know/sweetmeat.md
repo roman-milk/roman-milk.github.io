@@ -1,5 +1,7 @@
-Sweetmeat
-=========
+---
+layout: page
+title: Sweetmeat
+---
 #1 
 
 ===

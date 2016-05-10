@@ -1,5 +1,7 @@
-Rob and Lori
-===================
+---
+layout: page
+title: Rob and Lori
+---
 #1 
 
 ===

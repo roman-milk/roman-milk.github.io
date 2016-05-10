@@ -1,5 +1,7 @@
-Spring Break
-============
+---
+layout: page
+title: Spring Break
+---
 #1 
 
 ===

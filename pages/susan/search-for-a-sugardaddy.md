@@ -1,5 +1,7 @@
-Search for a Sugardaddy
-=======================
+---
+layout: page
+title: Search for a Sugardaddy
+---
 #1 
 
 ===

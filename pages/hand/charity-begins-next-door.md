@@ -1,5 +1,7 @@
-Charity begins Nextdoor
-=======================
+---
+layout: page
+title: Charity begins Nextdoor
+---
 
 ===
 

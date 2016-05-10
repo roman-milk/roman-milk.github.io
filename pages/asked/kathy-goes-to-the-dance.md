@@ -1,5 +1,7 @@
-Kathy Goes to the Dance
-=======================
+---
+layout: page
+title: Kathy Goes to the Dance
+---
 #1 
 
 ===

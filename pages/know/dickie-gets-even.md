@@ -1,5 +1,7 @@
-Dickie Gets Even
-=======================
+---
+layout: page
+title: Dickie Gets Even
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Witches Noir
-================
+---
+layout: page
+title: The Witches Noir
+---
 #1 
 
 ===

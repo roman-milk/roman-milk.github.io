@@ -1,5 +1,7 @@
-Cathy, Gloria and Me
-====================
+---
+layout: page
+title: Cathy, Gloria and Me
+---
 #1 
 
 ===

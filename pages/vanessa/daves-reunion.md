@@ -1,5 +1,7 @@
-Dave's Reunion
-==============
+---
+layout: page
+title: Dave's Reunion
+---
 #1 
 
 ===

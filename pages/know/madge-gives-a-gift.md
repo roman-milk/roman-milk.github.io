@@ -1,5 +1,7 @@
-Madge Gives A Gift
-==================
+---
+layout: page
+title: Madge Gives A Gift
+---
 #1 
 
 ===

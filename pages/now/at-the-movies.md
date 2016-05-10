@@ -1,5 +1,7 @@
-At The Movies: The First Hour
-=============================
+---
+layout: page
+title: At The Movies: The First Hour
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Dan's Homecoming
-================
+---
+layout: page
+title: Dan's Homecoming
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Ex Wants a Favor
-====================
+---
+layout: page
+title: The Ex Wants a Favor
+---
 #1 
 
 ===

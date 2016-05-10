@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Ashton
-============================
+---
+layout: page
+title: Becoming a Slut Wife: Ashton
+---
 #1 
 
 ===

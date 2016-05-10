@@ -1,5 +1,7 @@
-Shauna Williams: Slut-Mommy
-==================================
+---
+layout: page
+title: Shauna Williams: Slut-Mommy
+---
 #1 
 
 ===

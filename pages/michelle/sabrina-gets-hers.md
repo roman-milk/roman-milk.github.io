@@ -1,5 +1,7 @@
-Sabrina Gets Hers
-=================
+---
+layout: page
+title: Sabrina Gets Hers
+---
 #1 
 
 ===

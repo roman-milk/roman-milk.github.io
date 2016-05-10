@@ -1,5 +1,7 @@
-Sally's Birthday
-================
+---
+layout: page
+title: Sally's Birthday
+---
 #1 
 
 ===

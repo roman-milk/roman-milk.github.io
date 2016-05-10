@@ -1,5 +1,7 @@
-Loretta
-=======
+---
+layout: page
+title: Loretta
+---
 #1 
 
 ===

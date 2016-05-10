@@ -1,5 +1,7 @@
-Save a Tree Become a Sex Slave
-==============================
+---
+layout: page
+title: Save a Tree Become a Sex Slave
+---
 #1 
 
 ===

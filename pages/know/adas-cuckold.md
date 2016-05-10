@@ -1,5 +1,7 @@
-Ada's Cuckold
-=============
+---
+layout: page
+title: Ada's Cuckold
+---
 
 "Jerry?" 
 

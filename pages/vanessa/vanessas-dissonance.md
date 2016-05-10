@@ -1,5 +1,7 @@
-Vanessa's Dissonance
-===========================
+---
+layout: page
+title: Vanessa's Dissonance
+---
 #1 
 
 ===

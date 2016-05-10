@@ -1,5 +1,7 @@
-Jezebels
-========
+---
+layout: page
+title: Jezebels
+---
 #1 
 
 ===

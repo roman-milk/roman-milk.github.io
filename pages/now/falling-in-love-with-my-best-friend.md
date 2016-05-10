@@ -1,5 +1,7 @@
-Falling in Love with my Best Friend
-===================================
+---
+layout: page
+title: Falling in Love with my Best Friend
+---
 #1 
 
 ===

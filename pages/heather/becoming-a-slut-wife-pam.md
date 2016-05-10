@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Pam
-=========================
+---
+layout: page
+title: Becoming a Slut Wife: Pam
+---
 #1 
 
 ===

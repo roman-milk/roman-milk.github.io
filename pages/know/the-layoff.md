@@ -1,5 +1,7 @@
-The Layoff
-==========
+---
+layout: page
+title: The Layoff
+---
 #1 
 
 ===

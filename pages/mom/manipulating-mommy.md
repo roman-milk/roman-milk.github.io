@@ -1,5 +1,7 @@
-Manipulating Mommy
-==================
+---
+layout: page
+title: Manipulating Mommy
+---
 #1 
 
 ===

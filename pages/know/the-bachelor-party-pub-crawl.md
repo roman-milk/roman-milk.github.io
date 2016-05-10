@@ -1,5 +1,7 @@
-The Bachelor Party Pub Crawl
-============================
+---
+layout: page
+title: The Bachelor Party Pub Crawl
+---
 #1 
 
 ===

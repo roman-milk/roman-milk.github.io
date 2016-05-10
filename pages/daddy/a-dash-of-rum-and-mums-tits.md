@@ -1,5 +1,7 @@
 ---
-title: Story
+layout: page
+title: ---
+---
 ---
 
 A Dash of Rum and Mum's Tits

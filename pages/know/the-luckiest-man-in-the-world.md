@@ -1,5 +1,7 @@
-The Luckiest Man in the World
-=============================
+---
+layout: page
+title: The Luckiest Man in the World
+---
 #1 
 
 ===

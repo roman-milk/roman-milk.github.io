@@ -1,5 +1,7 @@
-Mommy: Becoming My Daughter's Slut
-==================================
+---
+layout: page
+title: Mommy: Becoming My Daughter's Slut
+---
 #1 
 
 ===

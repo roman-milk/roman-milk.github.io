@@ -1,5 +1,7 @@
-Rob's Fortune
-=============
+---
+layout: page
+title: Rob's Fortune
+---
 #1 
 
 ===

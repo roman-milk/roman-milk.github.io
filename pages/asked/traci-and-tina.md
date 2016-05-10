@@ -1,5 +1,7 @@
-Traci and Tina
-==============
+---
+layout: page
+title: Traci and Tina
+---
 #1 
 
 ===

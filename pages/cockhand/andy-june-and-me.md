@@ -1,5 +1,7 @@
-Andy, June and Me
-=================
+---
+layout: page
+title: Andy, June and Me
+---
 #1 
 
 ===

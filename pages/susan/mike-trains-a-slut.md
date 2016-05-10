@@ -1,5 +1,7 @@
-Mike Trains a Slut
-==================
+---
+layout: page
+title: Mike Trains a Slut
+---
 #1 
 
 ===

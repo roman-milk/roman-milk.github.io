@@ -1,5 +1,7 @@
-Vonda's Scoreboard
-==================
+---
+layout: page
+title: Vonda's Scoreboard
+---
 #1 
 
 ===

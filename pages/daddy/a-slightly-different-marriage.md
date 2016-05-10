@@ -1,5 +1,7 @@
-A Slightly Different Marriage
-=============================
+---
+layout: page
+title: A Slightly Different Marriage
+---
 #1 
 
 ===

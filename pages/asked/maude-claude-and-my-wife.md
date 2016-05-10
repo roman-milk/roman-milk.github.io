@@ -1,5 +1,7 @@
-Maude, Claude and My Wife
-=========================
+---
+layout: page
+title: Maude, Claude and My Wife
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Asshole
-==============
+---
+layout: page
+title: Asshole
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mrs Stone Teases
-================
+---
+layout: page
+title: Mrs Stone Teases
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Stella
-======
+---
+layout: page
+title: Stella
+---
 #1 
 
 ===

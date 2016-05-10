@@ -1,5 +1,7 @@
-The Hole
-========
+---
+layout: page
+title: The Hole
+---
 #1 
 
 ===

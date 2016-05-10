@@ -1,5 +1,7 @@
-Mrs Jizm
-===============
+---
+layout: page
+title: Mrs Jizm
+---
 #1 
 
 ===

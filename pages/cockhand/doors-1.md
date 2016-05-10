@@ -1,5 +1,7 @@
-Doors
-=====
+---
+layout: page
+title: Doors
+---
 #1 
 
 ===

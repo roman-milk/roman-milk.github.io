@@ -1,5 +1,7 @@
-Mum's Portrait
-==============
+---
+layout: page
+title: Mum's Portrait
+---
 #1 
 
 ===

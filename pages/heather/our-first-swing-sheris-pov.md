@@ -1,5 +1,7 @@
-Our First Swing: Sheri's POV
-============================
+---
+layout: page
+title: Our First Swing: Sheri's POV
+---
 #1 
 
 ===

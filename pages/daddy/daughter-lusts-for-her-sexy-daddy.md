@@ -1,5 +1,7 @@
-Daughter Lusts For Her Sexy Daddy
-=================================
+---
+layout: page
+title: Daughter Lusts For Her Sexy Daddy
+---
 #1 
 
 ===

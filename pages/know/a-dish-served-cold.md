@@ -1,5 +1,7 @@
-A Dish Served Cold
-==================
+---
+layout: page
+title: A Dish Served Cold
+---
 #1 
 
 ===

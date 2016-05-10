@@ -1,5 +1,7 @@
-Mrs. Moffit
-===========
+---
+layout: page
+title: Mrs. Moffit
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Lost at Christmas
-=================
+---
+layout: page
+title: Lost at Christmas
+---
 #1 
 
 ===

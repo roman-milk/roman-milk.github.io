@@ -1,5 +1,7 @@
-Putting It In Carmen's Dirty-Hole
-=================================
+---
+layout: page
+title: Putting It In Carmen's Dirty-Hole
+---
 #1 
 
 ===

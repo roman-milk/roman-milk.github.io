@@ -1,5 +1,7 @@
-Pillow Talk
-===========
+---
+layout: page
+title: Pillow Talk
+---
 #1 
 
 ===

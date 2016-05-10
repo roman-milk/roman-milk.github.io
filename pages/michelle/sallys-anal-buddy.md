@@ -1,5 +1,7 @@
-Sally's Anal Buddy
-==================
+---
+layout: page
+title: Sally's Anal Buddy
+---
 #1 
 
 ===

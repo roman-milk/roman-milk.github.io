@@ -1,5 +1,7 @@
-Melody Malone
-=============
+---
+layout: page
+title: Melody Malone
+---
 #1 
 
 ===

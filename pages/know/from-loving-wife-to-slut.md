@@ -1,5 +1,7 @@
-From Loving Wife to Slut
-===============================
+---
+layout: page
+title: From Loving Wife to Slut
+---
 #1 
 
 ===

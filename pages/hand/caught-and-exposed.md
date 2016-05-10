@@ -1,5 +1,7 @@
-Caught and Exposed
-==================
+---
+layout: page
+title: Caught and Exposed
+---
 #1 
 
 ===

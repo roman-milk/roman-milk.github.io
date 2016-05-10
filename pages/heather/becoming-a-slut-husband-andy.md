@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Andy
-=============================
+---
+layout: page
+title: Becoming A Slut Husband: Andy
+---
 #1 
 
 ===

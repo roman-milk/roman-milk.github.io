@@ -1,5 +1,7 @@
-The Wedding - The Funeral
-=========================
+---
+layout: page
+title: The Wedding - The Funeral
+---
 #1 
 
 ===

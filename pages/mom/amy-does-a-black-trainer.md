@@ -1,5 +1,7 @@
-Amy Does a Black Trainer
-========================
+---
+layout: page
+title: Amy Does a Black Trainer
+---
 #1 
 
 ===

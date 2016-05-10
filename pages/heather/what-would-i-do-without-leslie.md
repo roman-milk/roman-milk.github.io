@@ -1,5 +1,7 @@
-What Would I Do Without Leslie
-==============================
+---
+layout: page
+title: What Would I Do Without Leslie
+---
 #1 
 
 ===

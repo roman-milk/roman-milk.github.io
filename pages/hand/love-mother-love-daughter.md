@@ -1,5 +1,7 @@
-Love Mother, Love Daughter
-==========================
+---
+layout: page
+title: Love Mother, Love Daughter
+---
 #1 
 
 ===

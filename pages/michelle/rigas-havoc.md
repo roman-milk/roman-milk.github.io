@@ -1,5 +1,7 @@
-Riga's Havoc
-===================
+---
+layout: page
+title: Riga's Havoc
+---
 #1 
 
 ===

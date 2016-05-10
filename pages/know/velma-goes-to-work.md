@@ -1,5 +1,7 @@
-Velma Goes to Work
-==================
+---
+layout: page
+title: Velma Goes to Work
+---
 #1 
 
 ===

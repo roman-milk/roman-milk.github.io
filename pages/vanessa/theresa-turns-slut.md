@@ -1,5 +1,7 @@
-Theresa Turns Slut
-==================
+---
+layout: page
+title: Theresa Turns Slut
+---
 #1 
 
 ===

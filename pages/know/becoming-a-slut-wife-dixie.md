@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Dixie
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Dixie
+---
 #1 
 
 ===

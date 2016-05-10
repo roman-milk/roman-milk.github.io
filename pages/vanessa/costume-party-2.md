@@ -1,5 +1,7 @@
-Costume Party
-=============
+---
+layout: page
+title: Costume Party
+---
 #1  
 
 ===

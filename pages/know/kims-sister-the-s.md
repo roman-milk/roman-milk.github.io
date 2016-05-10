@@ -1,5 +1,7 @@
-Kim's Sister the Slut
-=====================
+---
+layout: page
+title: Kim's Sister the Slut
+---
 #1 
 
 ===

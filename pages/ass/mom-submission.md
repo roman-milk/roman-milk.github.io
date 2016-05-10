@@ -1,5 +1,7 @@
-Mom Submission
-==============
+---
+layout: page
+title: Mom Submission
+---
 #1 
 
 ===

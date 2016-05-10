@@ -1,5 +1,7 @@
-Stockholm Syndrome
-==================
+---
+layout: page
+title: Stockholm Syndrome
+---
 #1 
 
 ===

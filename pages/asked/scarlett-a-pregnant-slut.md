@@ -1,5 +1,7 @@
-Scarlett, A Pregnant Slut
-================================
+---
+layout: page
+title: Scarlett, A Pregnant Slut
+---
 #1 
 
 ===

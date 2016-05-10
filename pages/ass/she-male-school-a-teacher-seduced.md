@@ -1,5 +1,7 @@
-She-Male School: A Teacher Seduced
-==================================
+---
+layout: page
+title: She-Male School: A Teacher Seduced
+---
 #1 
 
 ===

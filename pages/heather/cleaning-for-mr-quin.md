@@ -1,5 +1,7 @@
-Cleaning for Mr Quin
-====================
+---
+layout: page
+title: Cleaning for Mr Quin
+---
 #1 
 
 ===

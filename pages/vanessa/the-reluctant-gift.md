@@ -1,5 +1,7 @@
-The Reluctant Gift
-==================
+---
+layout: page
+title: The Reluctant Gift
+---
 #1 
 
 ===

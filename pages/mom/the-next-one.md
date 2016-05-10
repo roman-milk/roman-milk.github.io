@@ -1,5 +1,7 @@
-The Next One
-===================
+---
+layout: page
+title: The Next One
+---
 #1 
 
 ===

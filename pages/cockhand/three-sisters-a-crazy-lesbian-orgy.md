@@ -1,5 +1,7 @@
-Three Sisters: A Crazy Lesbian Orgy
-===================================
+---
+layout: page
+title: Three Sisters: A Crazy Lesbian Orgy
+---
 #1 
 
 ===

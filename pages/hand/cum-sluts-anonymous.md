@@ -1,5 +1,7 @@
-Cum Sluts Anonymous 1: Ralph
-============================
+---
+layout: page
+title: Cum Sluts Anonymous 1: Ralph
+---
 #1 
 
 ===

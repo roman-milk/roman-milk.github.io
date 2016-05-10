@@ -1,5 +1,7 @@
-Learning I'm Submissive
-=======================
+---
+layout: page
+title: Learning I'm Submissive
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Joan's Baby
-===========
+---
+layout: page
+title: Joan's Baby
+---
 #1 
 
 ===

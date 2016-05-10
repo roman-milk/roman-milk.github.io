@@ -1,5 +1,7 @@
-Humiliated
-=================
+---
+layout: page
+title: Humiliated
+---
 #1 
 
 ===

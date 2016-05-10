@@ -1,5 +1,7 @@
-Exhibitionist Wife
-=========================
+---
+layout: page
+title: Exhibitionist Wife
+---
 
 Just a thong 
 

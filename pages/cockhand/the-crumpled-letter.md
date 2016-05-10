@@ -1,5 +1,7 @@
-The Crumpled Letter
-===================
+---
+layout: page
+title: The Crumpled Letter
+---
 #1 
 
 ===

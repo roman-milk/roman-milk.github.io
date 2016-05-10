@@ -1,5 +1,7 @@
-Cassandra's Cum Party
-=====================
+---
+layout: page
+title: Cassandra's Cum Party
+---
 #1 
 
 ===

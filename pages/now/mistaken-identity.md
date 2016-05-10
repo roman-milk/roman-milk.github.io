@@ -1,5 +1,7 @@
-Mistaken Identity
-========================
+---
+layout: page
+title: Mistaken Identity
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Tricked into Lesbian Submission
-===============================
+---
+layout: page
+title: Tricked into Lesbian Submission
+---
 #1 
 
 ===

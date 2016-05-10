@@ -1,5 +1,7 @@
-The Gym
-=======
+---
+layout: page
+title: The Gym
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Dear Abby
-=========
+---
+layout: page
+title: Dear Abby
+---
 
 Dear Abby, 
 

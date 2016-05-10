@@ -1,5 +1,7 @@
-Like Mommy, Like Daughter
-=========================
+---
+layout: page
+title: Like Mommy, Like Daughter
+---
 #1 
 
 ===

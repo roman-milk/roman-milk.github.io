@@ -1,5 +1,7 @@
-Sister Seduces
-==============
+---
+layout: page
+title: Sister Seduces
+---
 #1 
 
 ===

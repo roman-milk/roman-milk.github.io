@@ -1,5 +1,7 @@
-The Hunter and The Hunted
-================================
+---
+layout: page
+title: The Hunter and The Hunted
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Bought Husband
-=========================
+---
+layout: page
+title: The Bought Husband
+---
 #1 
 
 ===

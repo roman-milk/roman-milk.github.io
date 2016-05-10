@@ -1,5 +1,7 @@
-Graham Parker's Mother
-======================
+---
+layout: page
+title: Graham Parker's Mother
+---
 #1 
 
 ===

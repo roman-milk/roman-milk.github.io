@@ -1,5 +1,7 @@
-Bettina's a Back-door Girl
-==========================
+---
+layout: page
+title: Bettina's a Back-door Girl
+---
 #1 
 
 ===

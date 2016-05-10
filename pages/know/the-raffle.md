@@ -1,5 +1,7 @@
-The Raffle
-==========
+---
+layout: page
+title: The Raffle
+---
 #1 
 
 ===

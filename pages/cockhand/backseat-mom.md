@@ -1,5 +1,7 @@
-Backseat Mommy: A Long Hard Ride
-================================
+---
+layout: page
+title: Backseat Mommy: A Long Hard Ride
+---
 #1 
 
 ===

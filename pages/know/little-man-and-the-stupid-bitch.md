@@ -1,5 +1,7 @@
-Little Man and the Stupid Bitch
-===============================
+---
+layout: page
+title: Little Man and the Stupid Bitch
+---
 #1 
 
 ===

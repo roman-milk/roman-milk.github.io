@@ -1,5 +1,7 @@
-CvsN 01: Convenience Vs. Need
-=============================
+---
+layout: page
+title: CvsN 01: Convenience Vs. Need
+---
 #1 
 
 ===

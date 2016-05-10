@@ -1,5 +1,7 @@
-Found Out My Babysitter Is a Slut!
-==================================
+---
+layout: page
+title: Found Out My Babysitter Is a Slut!
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Sister in Law
-====================
+---
+layout: page
+title: Sister in Law
+---
 #1 
 
 ===

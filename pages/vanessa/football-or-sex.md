@@ -1,5 +1,7 @@
-Football or Sex?
-================
+---
+layout: page
+title: Football or Sex?
+---
 #1  
 
 ===

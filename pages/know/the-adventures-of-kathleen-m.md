@@ -1,5 +1,7 @@
-The Adventures of Kathleen M.
-=============================
+---
+layout: page
+title: The Adventures of Kathleen M.
+---
 #1 
 
 ===

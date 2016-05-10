@@ -1,5 +1,7 @@
-Teacher's Surgery
-=================
+---
+layout: page
+title: Teacher's Surgery
+---
 #1 
 
 ===

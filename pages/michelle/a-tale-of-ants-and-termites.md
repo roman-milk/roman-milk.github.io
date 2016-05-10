@@ -1,5 +1,7 @@
-A Tale of Ants and Termites
-===========================
+---
+layout: page
+title: A Tale of Ants and Termites
+---
 #1 
 
 ===

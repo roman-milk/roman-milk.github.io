@@ -1,5 +1,7 @@
-Replacing Mommy
-===============
+---
+layout: page
+title: Replacing Mommy
+---
 #1 
 
 ===

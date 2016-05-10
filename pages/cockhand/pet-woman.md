@@ -1,5 +1,7 @@
-Pet Woman
-=========
+---
+layout: page
+title: Pet Woman
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Something... Talk About in Tx
-====================================
+---
+layout: page
+title: Something... Talk About in Tx
+---
 #1 
 
 ===

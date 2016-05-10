@@ -1,5 +1,7 @@
-Permission
-==========
+---
+layout: page
+title: Permission
+---
 #1 
 
 ===

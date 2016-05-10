@@ -1,5 +1,7 @@
-Bob, Sandi, and Pauline
-=======================
+---
+layout: page
+title: Bob, Sandi, and Pauline
+---
 #1 
 
 ===

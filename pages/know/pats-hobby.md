@@ -1,5 +1,7 @@
-Pat's Hobby
-===========
+---
+layout: page
+title: Pat's Hobby
+---
 #1 
 
 ===

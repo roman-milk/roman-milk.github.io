@@ -1,5 +1,7 @@
-Anna Rides Out
-==============
+---
+layout: page
+title: Anna Rides Out
+---
 #1 
 
 ===

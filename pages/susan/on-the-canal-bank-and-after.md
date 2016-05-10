@@ -1,5 +1,7 @@
-On the Canal Bank and After
-===========================
+---
+layout: page
+title: On the Canal Bank and After
+---
 #1 
 
 ===

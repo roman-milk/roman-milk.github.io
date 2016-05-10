@@ -1,5 +1,7 @@
-Althea
-======
+---
+layout: page
+title: Althea
+---
 #1 
 
 ===

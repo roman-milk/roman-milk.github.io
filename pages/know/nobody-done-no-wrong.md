@@ -1,5 +1,7 @@
-Nobody Done No Wrong
-====================
+---
+layout: page
+title: Nobody Done No Wrong
+---
 #1 
 
 ===

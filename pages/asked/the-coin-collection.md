@@ -1,5 +1,7 @@
-The Coin Collection
-===================
+---
+layout: page
+title: The Coin Collection
+---
 #1 
 
 ===

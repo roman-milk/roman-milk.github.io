@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Ericka
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Ericka
+---
 #1 
 
 ===

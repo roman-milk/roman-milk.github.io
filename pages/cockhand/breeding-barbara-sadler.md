@@ -1,5 +1,7 @@
-Breeding Barbara Sadler
-=======================
+---
+layout: page
+title: Breeding Barbara Sadler
+---
 #1 
 
 ===

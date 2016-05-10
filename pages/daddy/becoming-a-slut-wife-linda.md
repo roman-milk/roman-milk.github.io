@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Linda
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Linda
+---
 #1 
 
 ===

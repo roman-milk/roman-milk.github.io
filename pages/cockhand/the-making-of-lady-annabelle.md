@@ -1,5 +1,7 @@
-The Making of Lady Annabelle
-============================
+---
+layout: page
+title: The Making of Lady Annabelle
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Anal Album
-==========
+---
+layout: page
+title: Anal Album
+---
 #1 
 
 ===

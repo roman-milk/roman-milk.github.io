@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Angie
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Angie
+---
 #1 
 
 ===

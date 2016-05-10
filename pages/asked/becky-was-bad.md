@@ -1,5 +1,7 @@
-Becky Was Bad (A)
-=================
+---
+layout: page
+title: Becky Was Bad (A)
+---
 #1 
 
 ===

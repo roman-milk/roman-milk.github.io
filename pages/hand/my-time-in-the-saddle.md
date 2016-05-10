@@ -1,5 +1,7 @@
-My Time in The Saddle
-=====================
+---
+layout: page
+title: My Time in The Saddle
+---
 #1 
 
 ===

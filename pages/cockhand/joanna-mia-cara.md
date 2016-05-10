@@ -1,5 +1,7 @@
-Joanna: Mia Cara
-================
+---
+layout: page
+title: Joanna: Mia Cara
+---
 #1 
 
 ===

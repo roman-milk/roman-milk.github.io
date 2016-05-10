@@ -1,5 +1,7 @@
-Jessica's Change Management
-==================================
+---
+layout: page
+title: Jessica's Change Management
+---
 #1 
 
 ===

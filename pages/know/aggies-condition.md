@@ -1,5 +1,7 @@
-Aggie's Condition
-=================
+---
+layout: page
+title: Aggie's Condition
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Shelly's Trip
-=============
+---
+layout: page
+title: Shelly's Trip
+---
 #1 
 
 ===

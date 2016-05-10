@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Darby
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Darby
+---
 #1 
 
 ===

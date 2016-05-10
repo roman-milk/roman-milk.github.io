@@ -1,5 +1,7 @@
-TxQ - A Quiet Discussion
-========================
+---
+layout: page
+title: TxQ - A Quiet Discussion
+---
 #1 
 
 ===

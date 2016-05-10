@@ -1,5 +1,7 @@
-She Taught Me Well
-==================
+---
+layout: page
+title: She Taught Me Well
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Dominican Slut: Ass Fucked
-==========================
+---
+layout: page
+title: Dominican Slut: Ass Fucked
+---
 
 As I lick white sorority girl pussy while simultaneously getting ass fucked by white frat boy cock, my big, masculine, black husband is getting pegged by an eighteen year old blonde sorority sister and sucking her white boyfriend's cock. I can't help but reflect on the long and winding journey that put me and my black husband in this predicament. 
 

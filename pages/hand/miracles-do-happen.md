@@ -1,5 +1,7 @@
-Miracles Do Happen
-==================
+---
+layout: page
+title: Miracles Do Happen
+---
 #1 
 
 ===

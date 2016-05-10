@@ -1,5 +1,7 @@
-Obedience: A Study in Seduction
-===============================
+---
+layout: page
+title: Obedience: A Study in Seduction
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Heads I Win, Tails She Loses
-============================
+---
+layout: page
+title: Heads I Win, Tails She Loses
+---
 #1 
 
 ===

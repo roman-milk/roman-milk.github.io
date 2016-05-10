@@ -1,5 +1,7 @@
-Masturbating with Mother
-========================
+---
+layout: page
+title: Masturbating with Mother
+---
 #1 
 
 ===

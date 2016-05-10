@@ -1,5 +1,7 @@
-All is Well That Ends Well
-==========================
+---
+layout: page
+title: All is Well That Ends Well
+---
 #1 
 
 ===

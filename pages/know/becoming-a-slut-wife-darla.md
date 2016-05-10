@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Darla
-==================================
+---
+layout: page
+title: Becoming a Slut Wife: Darla
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Abbotts
-==================
+---
+layout: page
+title: The Abbotts
+---
 #1 
 
 ===

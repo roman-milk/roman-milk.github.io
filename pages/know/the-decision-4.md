@@ -1,5 +1,7 @@
-The Decision
-============
+---
+layout: page
+title: The Decision
+---
 #1 
 
 ===

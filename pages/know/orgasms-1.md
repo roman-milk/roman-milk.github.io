@@ -1,5 +1,7 @@
-Orgasms
-=======
+---
+layout: page
+title: Orgasms
+---
 #1 
 
 ===

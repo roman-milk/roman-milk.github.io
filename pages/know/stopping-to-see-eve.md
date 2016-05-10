@@ -1,5 +1,7 @@
-Stopping to See Eve
-===================
+---
+layout: page
+title: Stopping to See Eve
+---
 #1 
 
 ===

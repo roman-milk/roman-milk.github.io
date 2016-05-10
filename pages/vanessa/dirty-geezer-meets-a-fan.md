@@ -1,5 +1,7 @@
-Dirty Geezer Meets A Fan
-========================
+---
+layout: page
+title: Dirty Geezer Meets A Fan
+---
 #1 
 
 ===

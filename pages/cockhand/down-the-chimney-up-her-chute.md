@@ -1,5 +1,7 @@
-Down the Chimney, Up Her Chute
-==============================
+---
+layout: page
+title: Down the Chimney, Up Her Chute
+---
 #1 
 
 ===

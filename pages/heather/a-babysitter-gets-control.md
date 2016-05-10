@@ -1,5 +1,7 @@
-A Babysitter Gets Control
-=========================
+---
+layout: page
+title: A Babysitter Gets Control
+---
 
 Pamela was 19 and wise beyond her years. She was not only smart, but also extremely devious and was one who got what she wanted one way or other. Most called her Pam and the closest person in her life was her twin brother, Paul. If there was such a thing as identical twins who were of the opposite sex, Pam and Paul were it. Each would do anything for the other and often did because of their love for each other. 
 

@@ -1,5 +1,7 @@
-A Hot Day at the Park
-=====================
+---
+layout: page
+title: A Hot Day at the Park
+---
 #1 
 
 ===

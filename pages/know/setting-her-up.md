@@ -1,5 +1,7 @@
-Setting Her Up
-==============
+---
+layout: page
+title: Setting Her Up
+---
 #1 
 
 ===

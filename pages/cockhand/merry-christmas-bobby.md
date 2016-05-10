@@ -1,5 +1,7 @@
-Merry Christmas Bobby
-=====================
+---
+layout: page
+title: Merry Christmas Bobby
+---
 #1 
 
 ===

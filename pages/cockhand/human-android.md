@@ -1,5 +1,7 @@
-Human Android
-====================
+---
+layout: page
+title: Human Android
+---
 #1 
 
 ===

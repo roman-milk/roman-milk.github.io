@@ -1,5 +1,7 @@
-The Barmaid
-===========
+---
+layout: page
+title: The Barmaid
+---
 #1 
 
 ===

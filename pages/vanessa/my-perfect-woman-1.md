@@ -1,5 +1,7 @@
-My Perfect Woman
-================
+---
+layout: page
+title: My Perfect Woman
+---
 #1 
 
 ===

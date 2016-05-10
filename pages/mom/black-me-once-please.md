@@ -1,5 +1,7 @@
-Black Me Once, Please
-=====================
+---
+layout: page
+title: Black Me Once, Please
+---
 #1 
 
 ===

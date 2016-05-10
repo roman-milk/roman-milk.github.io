@@ -1,5 +1,7 @@
-That Damned Valentine's Day Card
-================================
+---
+layout: page
+title: That Damned Valentine's Day Card
+---
 #1 
 
 ===

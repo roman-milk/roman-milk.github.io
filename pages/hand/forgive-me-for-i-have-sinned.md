@@ -1,5 +1,7 @@
-Forgive Me For I Have Sinned....
-================================
+---
+layout: page
+title: Forgive Me For I Have Sinned....
+---
 #1 
 
 ===

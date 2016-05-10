@@ -1,5 +1,7 @@
-Revenge of the Nerd: Bitch Sister
-=================================
+---
+layout: page
+title: Revenge of the Nerd: Bitch Sister
+---
 #1 
 
 ===

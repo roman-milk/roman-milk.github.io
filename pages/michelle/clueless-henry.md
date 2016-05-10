@@ -1,5 +1,7 @@
-Clueless Henry
-==============
+---
+layout: page
+title: Clueless Henry
+---
 #1 
 
 ===

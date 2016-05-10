@@ -1,5 +1,7 @@
-Wanda
-=====
+---
+layout: page
+title: Wanda
+---
 #1 
 
 ===

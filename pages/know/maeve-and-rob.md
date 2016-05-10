@@ -1,5 +1,7 @@
-Maeve and Rob
-====================
+---
+layout: page
+title: Maeve and Rob
+---
 #1 
 
 ===

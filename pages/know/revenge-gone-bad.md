@@ -1,5 +1,7 @@
-Revenge Gone Bad
-================
+---
+layout: page
+title: Revenge Gone Bad
+---
 #1 
 
 ===

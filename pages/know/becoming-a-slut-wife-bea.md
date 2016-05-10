@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Bea
-=========================
+---
+layout: page
+title: Becoming a Slut Wife: Bea
+---
 #1 
 
 ===

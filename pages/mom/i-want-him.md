@@ -1,5 +1,7 @@
-I Want Him
-==========
+---
+layout: page
+title: I Want Him
+---
 #1 
 
 ===

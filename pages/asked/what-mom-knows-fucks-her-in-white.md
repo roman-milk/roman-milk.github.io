@@ -1,5 +1,7 @@
-What Mom Knows Fucks Her in White
-=================================
+---
+layout: page
+title: What Mom Knows Fucks Her in White
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Body of Justice
-===================
+---
+layout: page
+title: The Body of Justice
+---
 #1 
 
 ===

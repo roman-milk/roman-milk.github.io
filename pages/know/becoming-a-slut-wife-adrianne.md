@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Adrianne
-==============================
+---
+layout: page
+title: Becoming a Slut Wife: Adrianne
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Hot Houseguest
-==============
+---
+layout: page
+title: Hot Houseguest
+---
 #1 
 
 ===

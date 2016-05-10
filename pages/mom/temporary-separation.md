@@ -1,5 +1,7 @@
-Temporary Separation
-====================
+---
+layout: page
+title: Temporary Separation
+---
 #1 
 
 ===

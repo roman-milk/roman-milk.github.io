@@ -1,5 +1,7 @@
-Hotwife Surprise
-================
+---
+layout: page
+title: Hotwife Surprise
+---
 #1 
 
 ===

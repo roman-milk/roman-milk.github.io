@@ -1,5 +1,7 @@
-&quot;Pet Mommy&quot;: Becoming a Mommy-Slut!
-=============================================
+---
+layout: page
+title: &quot;Pet Mommy&quot;: Becoming a Mommy-Slut!
+---
 #1 
 
 ===

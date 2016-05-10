@@ -1,5 +1,7 @@
-My Brother's Fuck Toy...Me
-==========================
+---
+layout: page
+title: My Brother's Fuck Toy...Me
+---
 #1 
 
 ===

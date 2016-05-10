@@ -1,5 +1,7 @@
-Mom's Stockings: My Son's Cum Bucket
-====================================
+---
+layout: page
+title: Mom's Stockings: My Son's Cum Bucket
+---
 #1 
 
 ===

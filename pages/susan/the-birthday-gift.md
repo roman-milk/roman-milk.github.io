@@ -1,5 +1,7 @@
-The Birthday Gift
-========================
+---
+layout: page
+title: The Birthday Gift
+---
 #1 
 
 ===

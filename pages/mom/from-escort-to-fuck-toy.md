@@ -1,5 +1,7 @@
-From Escort to Fuck Toy
-=======================
+---
+layout: page
+title: From Escort to Fuck Toy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Captain Finds a Sub
-=======================
+---
+layout: page
+title: The Captain Finds a Sub
+---
 #1 
 
 ===

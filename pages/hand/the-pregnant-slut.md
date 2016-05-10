@@ -1,5 +1,7 @@
-The Pregnant Slut
-=================
+---
+layout: page
+title: The Pregnant Slut
+---
 #1 
 
 ===

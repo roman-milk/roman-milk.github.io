@@ -1,5 +1,7 @@
-Gangbang Submission
-===================
+---
+layout: page
+title: Gangbang Submission
+---
 #1 
 
 ===

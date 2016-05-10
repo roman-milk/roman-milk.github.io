@@ -1,5 +1,7 @@
-Pet Teacher
-===========
+---
+layout: page
+title: Pet Teacher
+---
 #1 
 
 ===

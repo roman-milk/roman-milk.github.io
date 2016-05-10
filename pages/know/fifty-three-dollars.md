@@ -1,5 +1,7 @@
-Fifty-Three Dollars
-===================
+---
+layout: page
+title: Fifty-Three Dollars
+---
 #1 
 
 ===

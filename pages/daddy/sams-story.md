@@ -1,5 +1,7 @@
-Sam's Story
-===========
+---
+layout: page
+title: Sam's Story
+---
 #1 
 
 ===

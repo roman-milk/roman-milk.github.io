@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Meredith
-==============================
+---
+layout: page
+title: Becoming a Slut Wife: Meredith
+---
 #1 
 
 ===

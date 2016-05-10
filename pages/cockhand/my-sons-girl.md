@@ -1,5 +1,7 @@
-My Son's Girl
-=============
+---
+layout: page
+title: My Son's Girl
+---
 #1 
 
 ===

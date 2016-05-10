@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Candace
-=============================
+---
+layout: page
+title: Becoming a Slut Wife: Candace
+---
 #1 
 
 ===

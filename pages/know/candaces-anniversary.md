@@ -1,5 +1,7 @@
-Candace's Anniversary
-=====================
+---
+layout: page
+title: Candace's Anniversary
+---
 
 ===
 

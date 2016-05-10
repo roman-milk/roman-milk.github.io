@@ -1,5 +1,7 @@
-Aunt Hazel's Hairy Pussy
-========================
+---
+layout: page
+title: Aunt Hazel's Hairy Pussy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Teacher's Trip
-=====================
+---
+layout: page
+title: Teacher's Trip
+---
 #1 
 
 ===

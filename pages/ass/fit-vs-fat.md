@@ -1,5 +1,7 @@
-Fit vs. Fat
-===========
+---
+layout: page
+title: Fit vs. Fat
+---
 #1 
 
 ===

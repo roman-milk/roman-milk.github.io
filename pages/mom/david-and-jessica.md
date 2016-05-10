@@ -1,5 +1,7 @@
-David and Jessica
-=================
+---
+layout: page
+title: David and Jessica
+---
 #1 
 
 ===

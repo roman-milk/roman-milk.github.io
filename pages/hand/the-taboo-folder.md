@@ -1,5 +1,7 @@
-The Taboo Folder
-================
+---
+layout: page
+title: The Taboo Folder
+---
 #1 
 
 ===

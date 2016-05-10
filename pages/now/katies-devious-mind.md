@@ -1,5 +1,7 @@
-Katie's Devious Mind
-====================
+---
+layout: page
+title: Katie's Devious Mind
+---
 #1 
 
 ===

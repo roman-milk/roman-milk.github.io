@@ -1,5 +1,7 @@
-Susan Clarke
-============
+---
+layout: page
+title: Susan Clarke
+---
 #1 
 
 ===

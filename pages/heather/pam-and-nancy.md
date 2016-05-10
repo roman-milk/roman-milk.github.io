@@ -1,5 +1,7 @@
-Pam and Nancy
-=============
+---
+layout: page
+title: Pam and Nancy
+---
 #1 
 
 ===

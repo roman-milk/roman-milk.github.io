@@ -1,5 +1,7 @@
-Mandy's Revenge
-===============
+---
+layout: page
+title: Mandy's Revenge
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Seduction of a Young Mother
-===========================
+---
+layout: page
+title: Seduction of a Young Mother
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mom Becomes A Cheating Slut
-==================================
+---
+layout: page
+title: Mom Becomes A Cheating Slut
+---
 #1 
 
 ===

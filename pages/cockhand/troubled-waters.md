@@ -1,5 +1,7 @@
-Troubled Waters: The First Day
-==============================
+---
+layout: page
+title: Troubled Waters: The First Day
+---
 #1 
 
 ===

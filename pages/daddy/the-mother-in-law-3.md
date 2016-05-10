@@ -1,5 +1,7 @@
-The Mother-in-Law
-=================
+---
+layout: page
+title: The Mother-in-Law
+---
 #1 
 
 ===

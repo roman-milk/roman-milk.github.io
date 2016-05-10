@@ -1,5 +1,7 @@
-Sarah Wanted a Little Thrill
-============================
+---
+layout: page
+title: Sarah Wanted a Little Thrill
+---
 #1 
 
 ===

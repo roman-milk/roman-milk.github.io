@@ -1,5 +1,7 @@
-A Blinding Hate
-===============
+---
+layout: page
+title: A Blinding Hate
+---
 #1 
 
 ===

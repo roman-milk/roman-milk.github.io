@@ -1,5 +1,7 @@
-The Long Weekend
-================
+---
+layout: page
+title: The Long Weekend
+---
 #1 
 
 ===

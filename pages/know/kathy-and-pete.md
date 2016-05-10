@@ -1,5 +1,7 @@
-Kathy and Pete
-==============
+---
+layout: page
+title: Kathy and Pete
+---
 #1 
 
 ===

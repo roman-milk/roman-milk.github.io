@@ -1,5 +1,7 @@
-My Three Ex-Wives
-=================
+---
+layout: page
+title: My Three Ex-Wives
+---
 #1 
 
 ===

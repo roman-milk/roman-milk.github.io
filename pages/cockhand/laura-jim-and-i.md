@@ -1,5 +1,7 @@
-Laura, Jim and I
-================
+---
+layout: page
+title: Laura, Jim and I
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-My Submissive Teacher: 3 Hole Slut
-==================================
+---
+layout: page
+title: My Submissive Teacher: 3 Hole Slut
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Small Package
-=================
+---
+layout: page
+title: The Small Package
+---
 #1 
 
 ===

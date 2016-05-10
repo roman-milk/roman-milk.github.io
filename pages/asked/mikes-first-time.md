@@ -1,5 +1,7 @@
-Mike's First Time
-=================
+---
+layout: page
+title: Mike's First Time
+---
 #1 
 
 ===

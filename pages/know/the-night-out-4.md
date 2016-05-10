@@ -1,5 +1,7 @@
-The Night Out
-=============
+---
+layout: page
+title: The Night Out
+---
 #1 
 
 ===

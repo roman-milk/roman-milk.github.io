@@ -1,5 +1,7 @@
-Dancing Shayna
-==============
+---
+layout: page
+title: Dancing Shayna
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Patty Ann, Brad and Me
-======================
+---
+layout: page
+title: Patty Ann, Brad and Me
+---
 #1 
 
 ===

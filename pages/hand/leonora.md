@@ -1,5 +1,7 @@
-Leonora
-==============
+---
+layout: page
+title: Leonora
+---
 #1 
 
 ===

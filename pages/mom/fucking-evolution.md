@@ -1,5 +1,7 @@
-Fucking Evolution
-========================
+---
+layout: page
+title: Fucking Evolution
+---
 #1 
 
 ===

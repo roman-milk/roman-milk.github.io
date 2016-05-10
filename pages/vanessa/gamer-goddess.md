@@ -1,5 +1,7 @@
-Gamer Goddess
-====================
+---
+layout: page
+title: Gamer Goddess
+---
 #1 
 
 ===

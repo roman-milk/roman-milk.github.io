@@ -1,5 +1,7 @@
-About Writing Sequels
-=====================
+---
+layout: page
+title: About Writing Sequels
+---
 #1 
 
 ===

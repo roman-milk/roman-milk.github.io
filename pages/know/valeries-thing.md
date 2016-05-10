@@ -1,5 +1,7 @@
-Valerie's Thing
-===============
+---
+layout: page
+title: Valerie's Thing
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Nice Bloke
-==============
+---
+layout: page
+title: The Nice Bloke
+---
 #1 
 
 ===

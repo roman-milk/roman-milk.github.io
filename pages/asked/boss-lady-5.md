@@ -1,5 +1,7 @@
-Boss Lady
-=========
+---
+layout: page
+title: Boss Lady
+---
 #1 
 
 ===

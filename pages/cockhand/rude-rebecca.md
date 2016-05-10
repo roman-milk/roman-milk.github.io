@@ -1,5 +1,7 @@
-Rude Rebecca
-============
+---
+layout: page
+title: Rude Rebecca
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Rob and Millie Go to Atlanta
-============================
+---
+layout: page
+title: Rob and Millie Go to Atlanta
+---
 #1 
 
 ===

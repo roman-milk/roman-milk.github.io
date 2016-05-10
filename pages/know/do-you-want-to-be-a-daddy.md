@@ -1,5 +1,7 @@
-Do You Want To Be A Daddy?
-==========================
+---
+layout: page
+title: Do You Want To Be A Daddy?
+---
 #1 
 
 ===

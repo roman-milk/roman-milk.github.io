@@ -1,5 +1,7 @@
-Confidence
-=================
+---
+layout: page
+title: Confidence
+---
 #1  
 
 ===

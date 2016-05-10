@@ -1,5 +1,7 @@
-Daughter in a Magazine
-======================
+---
+layout: page
+title: Daughter in a Magazine
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Shopping at Briarwood
-=====================
+---
+layout: page
+title: Shopping at Briarwood
+---
 #1 
 
 ===

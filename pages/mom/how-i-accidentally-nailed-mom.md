@@ -1,5 +1,7 @@
-How I Accidentally Nailed Mom
-=============================
+---
+layout: page
+title: How I Accidentally Nailed Mom
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Most Unwanted Present
-=======================
+---
+layout: page
+title: A Most Unwanted Present
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Special Relationship
-========================
+---
+layout: page
+title: The Special Relationship
+---
 #1 
 
 ===

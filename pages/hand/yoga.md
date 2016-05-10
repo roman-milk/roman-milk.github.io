@@ -1,5 +1,7 @@
-Yoga
-====
+---
+layout: page
+title: Yoga
+---
 
 Lorain was attempting, yet again, what was for her an impossible yoga position. With both ankles wrapped around the neck she slipped. The success was short lived as she slowly rolled backwards trapping both arms under her legs. She was trapped in place by her own weight. In this indelicate position she would remain until someone came to the rescue and she knew exactly who that would be. 
 

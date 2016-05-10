@@ -1,5 +1,7 @@
-Cora's Curiosity
-================
+---
+layout: page
+title: Cora's Curiosity
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-What Mom Doesn't Know Will Fuck Her
-===================================
+---
+layout: page
+title: What Mom Doesn't Know Will Fuck Her
+---
 #1 
 
 ===

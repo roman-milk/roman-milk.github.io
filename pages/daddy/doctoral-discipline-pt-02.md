@@ -1,5 +1,7 @@
-Doctoral Discipline Pt. 02
-==========================
+---
+layout: page
+title: Doctoral Discipline Pt. 02
+---
 #1 
 
 ===

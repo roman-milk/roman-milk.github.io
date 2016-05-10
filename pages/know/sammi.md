@@ -1,5 +1,7 @@
-Sammi
-=====
+---
+layout: page
+title: Sammi
+---
 #1 
 
 ===

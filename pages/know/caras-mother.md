@@ -1,5 +1,7 @@
-Cara's Mother
-=============
+---
+layout: page
+title: Cara's Mother
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Corruption Of Selena
-===============================
+---
+layout: page
+title: The Corruption Of Selena
+---
 #1 
 
 ===

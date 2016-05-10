@@ -1,5 +1,7 @@
-First Taste
-===========
+---
+layout: page
+title: First Taste
+---
 #1 
 
 ===

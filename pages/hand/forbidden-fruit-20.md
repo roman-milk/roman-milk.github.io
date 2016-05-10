@@ -1,5 +1,7 @@
-Forbidden Fruit
-===============
+---
+layout: page
+title: Forbidden Fruit
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Liz
-=========================
+---
+layout: page
+title: Becoming A Slut Wife: Liz
+---
 #1 
 
 ===

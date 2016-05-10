@@ -1,5 +1,7 @@
-The Decoy
-=========
+---
+layout: page
+title: The Decoy
+---
 #1 
 
 ===

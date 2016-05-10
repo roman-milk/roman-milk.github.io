@@ -1,5 +1,7 @@
-The Escort
-=================
+---
+layout: page
+title: The Escort
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Sarah Goes Black
-================
+---
+layout: page
+title: Sarah Goes Black
+---
 #1 
 
 ===

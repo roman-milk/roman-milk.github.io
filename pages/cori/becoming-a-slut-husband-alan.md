@@ -1,5 +1,7 @@
-Becoming a Slut Husband Alan
-============================
+---
+layout: page
+title: Becoming a Slut Husband Alan
+---
 #1 
 
 ===

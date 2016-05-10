@@ -1,5 +1,7 @@
-Another One
-===========
+---
+layout: page
+title: Another One
+---
 #1 
 
 ===

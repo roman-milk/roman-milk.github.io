@@ -1,5 +1,7 @@
-&quot;Incest Submission&quot;: Mom &amp; Son
-============================================
+---
+layout: page
+title: &quot;Incest Submission&quot;: Mom &amp; Son
+---
 #1 
 
 ===

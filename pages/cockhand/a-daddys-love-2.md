@@ -1,5 +1,7 @@
-A Daddy's Love
-==============
+---
+layout: page
+title: A Daddy's Love
+---
 #1 
 
 ===

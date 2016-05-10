@@ -1,5 +1,7 @@
-Serendipity
-===========
+---
+layout: page
+title: Serendipity
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Packing Up
-==========
+---
+layout: page
+title: Packing Up
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Devil's Dog
-===============
+---
+layout: page
+title: The Devil's Dog
+---
 #1 
 
 ===

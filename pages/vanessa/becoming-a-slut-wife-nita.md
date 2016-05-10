@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Nita
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Nita
+---
 #1 
 
 ===

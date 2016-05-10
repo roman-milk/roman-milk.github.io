@@ -1,5 +1,7 @@
-Your Legs or Your Wife
-======================
+---
+layout: page
+title: Your Legs or Your Wife
+---
 #1 
 
 ===

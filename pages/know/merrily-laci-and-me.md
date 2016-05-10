@@ -1,5 +1,7 @@
-Merrily, Laci and Me
-====================
+---
+layout: page
+title: Merrily, Laci and Me
+---
 #1 
 
 ===

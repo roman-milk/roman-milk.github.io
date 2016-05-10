@@ -1,5 +1,7 @@
-The Feminization of Daniel
-=================================
+---
+layout: page
+title: The Feminization of Daniel
+---
 #1 
 
 ===

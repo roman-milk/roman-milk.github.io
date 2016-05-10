@@ -1,5 +1,7 @@
-Laurie
-======
+---
+layout: page
+title: Laurie
+---
 #1 
 
 ===

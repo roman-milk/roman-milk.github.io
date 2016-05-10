@@ -1,5 +1,7 @@
-Leanne and Her Lovers
-=====================
+---
+layout: page
+title: Leanne and Her Lovers
+---
 #1 
 
 ===

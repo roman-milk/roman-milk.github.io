@@ -1,5 +1,7 @@
-A Tale Noir
-===========
+---
+layout: page
+title: A Tale Noir
+---
 #1 
 
 ===

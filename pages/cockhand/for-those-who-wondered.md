@@ -1,5 +1,7 @@
-For Those Who Wondered
-======================
+---
+layout: page
+title: For Those Who Wondered
+---
 #1 
 
 ===

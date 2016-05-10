@@ -1,5 +1,7 @@
-Linda's Lover
-=============
+---
+layout: page
+title: Linda's Lover
+---
 #1 
 
 ===

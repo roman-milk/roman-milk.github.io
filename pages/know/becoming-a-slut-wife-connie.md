@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Connie
-============================
+---
+layout: page
+title: Becoming a Slut Wife: Connie
+---
 #1 
 
 ===

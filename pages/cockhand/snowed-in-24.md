@@ -1,5 +1,7 @@
-Snowed In
-=========
+---
+layout: page
+title: Snowed In
+---
 #1 
 
 ===

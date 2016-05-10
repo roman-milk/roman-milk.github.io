@@ -1,5 +1,7 @@
-Swingers' Party: Teacher Train
-==============================
+---
+layout: page
+title: Swingers' Party: Teacher Train
+---
 #1 
 
 ===

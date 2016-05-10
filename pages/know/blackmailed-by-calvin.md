@@ -1,5 +1,7 @@
-Blackmailed By Calvin
-=====================
+---
+layout: page
+title: Blackmailed By Calvin
+---
 #1 
 
 ===

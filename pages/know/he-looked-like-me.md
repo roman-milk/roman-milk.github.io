@@ -1,5 +1,7 @@
-He Looked Like Me Ch.01
-=======================
+---
+layout: page
+title: He Looked Like Me Ch.01
+---
 #1 
 
 ===

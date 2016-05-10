@@ -1,5 +1,7 @@
-Coming Home For Christmas
-=========================
+---
+layout: page
+title: Coming Home For Christmas
+---
 #1 
 
 ===

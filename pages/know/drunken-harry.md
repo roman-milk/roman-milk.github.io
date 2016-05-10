@@ -1,5 +1,7 @@
-Drunken Harry
-=============
+---
+layout: page
+title: Drunken Harry
+---
 #1 
 
 ===

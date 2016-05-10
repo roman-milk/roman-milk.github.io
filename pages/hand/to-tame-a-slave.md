@@ -1,5 +1,7 @@
-To Tame a Slave
-===============
+---
+layout: page
+title: To Tame a Slave
+---
 #1 
 
 ===

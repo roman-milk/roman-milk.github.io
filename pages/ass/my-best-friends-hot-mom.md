@@ -1,5 +1,7 @@
-My Best Friend's Hot Mom
-========================
+---
+layout: page
+title: My Best Friend's Hot Mom
+---
 #1 
 
 ===

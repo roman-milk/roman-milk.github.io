@@ -1,5 +1,7 @@
-Rob and Glenda
-==============
+---
+layout: page
+title: Rob and Glenda
+---
 #1 
 
 ===

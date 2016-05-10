@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Doreen
-============================
+---
+layout: page
+title: Becoming a Slut Wife: Doreen
+---
 #1 
 
 ===

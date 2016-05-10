@@ -1,5 +1,7 @@
-Summer with Dad
-===============
+---
+layout: page
+title: Summer with Dad
+---
 #1 
 
 ===

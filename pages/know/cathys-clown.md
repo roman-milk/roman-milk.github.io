@@ -1,5 +1,7 @@
-Cathy's Clown
-=============
+---
+layout: page
+title: Cathy's Clown
+---
 #1 
 
 ===

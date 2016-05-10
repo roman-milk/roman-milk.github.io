@@ -1,5 +1,7 @@
-A Pregnant Tale
-===============
+---
+layout: page
+title: A Pregnant Tale
+---
 #1 
 
 ===

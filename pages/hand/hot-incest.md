@@ -1,5 +1,7 @@
-Hot Incest
-==========
+---
+layout: page
+title: Hot Incest
+---
 #1 
 
 ===

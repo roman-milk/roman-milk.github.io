@@ -1,5 +1,7 @@
-Dina
-====
+---
+layout: page
+title: Dina
+---
 #1 
 
 ===

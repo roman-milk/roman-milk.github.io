@@ -1,5 +1,7 @@
-Whose Idea Was This
-===================
+---
+layout: page
+title: Whose Idea Was This
+---
 #1 
 
 ===

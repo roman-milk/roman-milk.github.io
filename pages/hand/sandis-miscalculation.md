@@ -1,5 +1,7 @@
-Sandi's Miscalculation
-======================
+---
+layout: page
+title: Sandi's Miscalculation
+---
 #1 
 
 ===

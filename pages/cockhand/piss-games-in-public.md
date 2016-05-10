@@ -1,5 +1,7 @@
-Piss Games In Public
-====================
+---
+layout: page
+title: Piss Games In Public
+---
 #1 
 
 ===

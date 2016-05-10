@@ -1,5 +1,7 @@
-Diane Learns a Lesson
-=====================
+---
+layout: page
+title: Diane Learns a Lesson
+---
 #1 
 
 ===

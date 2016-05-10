@@ -1,5 +1,7 @@
-Two Teachers
-===================
+---
+layout: page
+title: Two Teachers
+---
 #1 
 
 ===

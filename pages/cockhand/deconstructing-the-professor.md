@@ -1,5 +1,7 @@
-Deconstructing the Professor
-============================
+---
+layout: page
+title: Deconstructing the Professor
+---
 #1 
 
 ===

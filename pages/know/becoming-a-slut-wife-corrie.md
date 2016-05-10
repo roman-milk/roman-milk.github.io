@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Corrie
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Corrie
+---
 #1 
 
 ===

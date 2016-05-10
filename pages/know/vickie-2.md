@@ -1,5 +1,7 @@
-Vickie
-======
+---
+layout: page
+title: Vickie
+---
 #1 
 
 ===

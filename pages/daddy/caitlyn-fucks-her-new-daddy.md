@@ -1,5 +1,7 @@
-Caitlyn Fucks Her New Daddy
-===========================
+---
+layout: page
+title: Caitlyn Fucks Her New Daddy
+---
 #1 
 
 ===

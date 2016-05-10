@@ -1,5 +1,7 @@
-Hipster Chicks Love Big Dicks
-=============================
+---
+layout: page
+title: Hipster Chicks Love Big Dicks
+---
 #1 
 
 ===

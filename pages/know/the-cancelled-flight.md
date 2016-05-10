@@ -1,5 +1,7 @@
-The Cancelled Flight
-====================
+---
+layout: page
+title: The Cancelled Flight
+---
 #1 
 
 ===

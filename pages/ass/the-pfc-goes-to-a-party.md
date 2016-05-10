@@ -1,5 +1,7 @@
-The PFC Goes to a Party
-=======================
+---
+layout: page
+title: The PFC Goes to a Party
+---
 #1 
 
 ===

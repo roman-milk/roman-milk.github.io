@@ -1,5 +1,7 @@
-Babs Meets Brian
-================
+---
+layout: page
+title: Babs Meets Brian
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mistletoe, Candy Canes, and a Lesbian
-=====================================
+---
+layout: page
+title: Mistletoe, Candy Canes, and a Lesbian
+---
 #1 
 
 ===

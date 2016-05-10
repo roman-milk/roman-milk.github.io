@@ -1,5 +1,7 @@
-Summer Sucks!
-=============
+---
+layout: page
+title: Summer Sucks!
+---
 #1 
 
 ===

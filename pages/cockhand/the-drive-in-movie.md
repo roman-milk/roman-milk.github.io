@@ -1,5 +1,7 @@
-The Drive In Movie
-==================
+---
+layout: page
+title: The Drive In Movie
+---
 #1 
 
 ===

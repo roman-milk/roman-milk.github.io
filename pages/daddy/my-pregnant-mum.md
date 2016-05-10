@@ -1,5 +1,7 @@
-My Pregnant Mum
-===============
+---
+layout: page
+title: My Pregnant Mum
+---
 #1 
 
 ===

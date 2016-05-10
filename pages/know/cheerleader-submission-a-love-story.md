@@ -1,5 +1,7 @@
-Cheerleader Submission: A Love Story
-====================================
+---
+layout: page
+title: Cheerleader Submission: A Love Story
+---
 #1 
 
 ===

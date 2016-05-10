@@ -1,5 +1,7 @@
-Ann at the Game
-===============
+---
+layout: page
+title: Ann at the Game
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mandy and the Wimp
-==================
+---
+layout: page
+title: Mandy and the Wimp
+---
 #1 
 
 ===

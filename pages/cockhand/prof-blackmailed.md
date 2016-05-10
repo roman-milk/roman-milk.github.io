@@ -1,5 +1,7 @@
-A Professor Is Blackmailed
-==========================
+---
+layout: page
+title: A Professor Is Blackmailed
+---
 #1 
 
 ===

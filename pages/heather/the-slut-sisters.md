@@ -1,5 +1,7 @@
-The Slut Sisters
-================
+---
+layout: page
+title: The Slut Sisters
+---
 #1 
 
 ===

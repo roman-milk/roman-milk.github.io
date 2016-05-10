@@ -1,5 +1,7 @@
-What I Did On My Christmas Vacation
-===================================
+---
+layout: page
+title: What I Did On My Christmas Vacation
+---
 #1 
 
 ===

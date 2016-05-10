@@ -1,5 +1,7 @@
-Caught off Guard ... By the Guard
-=================================
+---
+layout: page
+title: Caught off Guard ... By the Guard
+---
 #1 
 
 ===

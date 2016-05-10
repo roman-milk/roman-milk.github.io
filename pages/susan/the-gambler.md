@@ -1,5 +1,7 @@
-The Gambler
-==================
+---
+layout: page
+title: The Gambler
+---
 #1 
 
 ===

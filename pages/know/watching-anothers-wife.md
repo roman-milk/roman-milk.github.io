@@ -1,5 +1,7 @@
-Watching Another's Wife
-=======================
+---
+layout: page
+title: Watching Another's Wife
+---
 #1 
 
 ===

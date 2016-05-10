@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Hillary
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Hillary
+---
 #1 
 
 ===

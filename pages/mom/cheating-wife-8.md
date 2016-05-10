@@ -1,5 +1,7 @@
-Cheating Wife
-=============
+---
+layout: page
+title: Cheating Wife
+---
 #1 
 
 ===

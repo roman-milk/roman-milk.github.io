@@ -1,5 +1,7 @@
-Geena Becomes a Whore
-=====================
+---
+layout: page
+title: Geena Becomes a Whore
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Slut Addict: Jessica
-====================
+---
+layout: page
+title: Slut Addict: Jessica
+---
 #1 
 
 ===

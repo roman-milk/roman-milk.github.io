@@ -1,5 +1,7 @@
-The Coward
-==========
+---
+layout: page
+title: The Coward
+---
 #1 
 
 ===

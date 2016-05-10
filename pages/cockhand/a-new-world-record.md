@@ -1,5 +1,7 @@
-A New World Record
-==================
+---
+layout: page
+title: A New World Record
+---
 #1 
 
 ===

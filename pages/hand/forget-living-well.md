@@ -1,5 +1,7 @@
-Forget Living Well
-==================
+---
+layout: page
+title: Forget Living Well
+---
 #1 
 
 ===

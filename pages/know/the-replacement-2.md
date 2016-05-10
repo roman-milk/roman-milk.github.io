@@ -1,5 +1,7 @@
-The Replacement
-===============
+---
+layout: page
+title: The Replacement
+---
 #1 
 
 ===

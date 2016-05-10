@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Charlotte
-===============================
+---
+layout: page
+title: Becoming a Slut Wife: Charlotte
+---
 #1 
 
 ===

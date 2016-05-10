@@ -1,5 +1,7 @@
-Sandra's Accident
-=================
+---
+layout: page
+title: Sandra's Accident
+---
 #1 
 
 ===

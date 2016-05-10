@@ -1,5 +1,7 @@
-Lacey's First Double-Penetration
-================================
+---
+layout: page
+title: Lacey's First Double-Penetration
+---
 #1 
 
 ===

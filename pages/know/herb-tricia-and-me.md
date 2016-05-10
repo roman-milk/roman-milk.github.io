@@ -1,5 +1,7 @@
-Herb, Tricia and Me
-===================
+---
+layout: page
+title: Herb, Tricia and Me
+---
 #1 
 
 ===

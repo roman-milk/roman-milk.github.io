@@ -1,5 +1,7 @@
-The LW Troll
-============
+---
+layout: page
+title: The LW Troll
+---
 #1 
 
 ===

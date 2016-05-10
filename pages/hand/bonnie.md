@@ -1,5 +1,7 @@
-Bonnie
-======
+---
+layout: page
+title: Bonnie
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Tough Shit Max.
-===============
+---
+layout: page
+title: Tough Shit Max.
+---
 #1 
 
 ===

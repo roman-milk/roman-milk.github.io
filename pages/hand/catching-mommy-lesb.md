@@ -1,5 +1,7 @@
-Catching Mommy: A Shocking Secret
-=================================
+---
+layout: page
+title: Catching Mommy: A Shocking Secret
+---
 #1 
 
 ===

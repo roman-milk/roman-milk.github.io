@@ -1,5 +1,7 @@
-Merrily The Maid
-================
+---
+layout: page
+title: Merrily The Maid
+---
 #1 
 
 ===

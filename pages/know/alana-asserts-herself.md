@@ -1,5 +1,7 @@
-Alana Asserts Herself
-=====================
+---
+layout: page
+title: Alana Asserts Herself
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Twins Take Mom
-==================
+---
+layout: page
+title: The Twins Take Mom
+---
 #1 
 
 ===

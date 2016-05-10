@@ -1,5 +1,7 @@
-Myra
-====
+---
+layout: page
+title: Myra
+---
 #1 
 
 ===

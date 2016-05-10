@@ -1,5 +1,7 @@
-Sell Baby, Sell
-===============
+---
+layout: page
+title: Sell Baby, Sell
+---
 #1 
 
 ===

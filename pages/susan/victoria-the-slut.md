@@ -1,5 +1,7 @@
-Victoria the Slut
-========================
+---
+layout: page
+title: Victoria the Slut
+---
 #1 
 
 ===

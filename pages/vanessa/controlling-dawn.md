@@ -1,5 +1,7 @@
-Controlling Dawn
-=======================
+---
+layout: page
+title: Controlling Dawn
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Dan
-===
+---
+layout: page
+title: Dan
+---
 
 I was sitting at the kitchen table sipping my third cup of coffee and looking out the window at the backyard. The grass was ankle high, weeds were taking over the flowerbeds and the roses were in bad need of pruning. That was all stuff that Dan was supposed to take care of. 
 

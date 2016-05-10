@@ -1,5 +1,7 @@
-Abusing Violet
-==============
+---
+layout: page
+title: Abusing Violet
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Hot Tub Fuck Machine
-====================
+---
+layout: page
+title: Hot Tub Fuck Machine
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Randi's List
-============
+---
+layout: page
+title: Randi's List
+---
 #1 
 
 ===

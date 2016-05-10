@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Kathy
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Kathy
+---
 #1 
 
 ===

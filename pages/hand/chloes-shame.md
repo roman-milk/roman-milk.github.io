@@ -1,5 +1,7 @@
-Chloe's Shame
-=============
+---
+layout: page
+title: Chloe's Shame
+---
 #1 
 
 ===

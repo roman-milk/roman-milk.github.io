@@ -1,5 +1,7 @@
-Rob and Ellen
-====================
+---
+layout: page
+title: Rob and Ellen
+---
 #1 
 
 ===

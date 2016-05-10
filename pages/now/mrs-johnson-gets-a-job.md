@@ -1,5 +1,7 @@
-Mrs. Johnson Gets a Job
-=======================
+---
+layout: page
+title: Mrs. Johnson Gets a Job
+---
 #1 
 
 ===

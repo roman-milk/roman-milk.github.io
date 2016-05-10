@@ -1,5 +1,7 @@
-Daddy's Hard Day
-================
+---
+layout: page
+title: Daddy's Hard Day
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Hot Wifey Cheats with Bar Stud
-==============================
+---
+layout: page
+title: Hot Wifey Cheats with Bar Stud
+---
 #1 
 
 ===

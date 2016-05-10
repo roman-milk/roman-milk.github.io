@@ -1,5 +1,7 @@
-Rob and Aggie
-=============
+---
+layout: page
+title: Rob and Aggie
+---
 #1 
 
 ===

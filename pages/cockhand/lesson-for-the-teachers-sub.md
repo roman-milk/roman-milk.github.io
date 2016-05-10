@@ -1,5 +1,7 @@
-Lesson for the Teacher's Sub
-============================
+---
+layout: page
+title: Lesson for the Teacher's Sub
+---
 #1 
 
 ===

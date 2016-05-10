@@ -1,5 +1,7 @@
-Conflict
-========
+---
+layout: page
+title: Conflict
+---
 #1 
 
 ===

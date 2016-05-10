@@ -1,5 +1,7 @@
-Little Sexy
-===========
+---
+layout: page
+title: Little Sexy
+---
 #1 
 
 ===

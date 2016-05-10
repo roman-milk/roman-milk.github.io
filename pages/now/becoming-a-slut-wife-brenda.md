@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Brenda
-============================
+---
+layout: page
+title: Becoming a Slut Wife: Brenda
+---
 #1 
 
 ===

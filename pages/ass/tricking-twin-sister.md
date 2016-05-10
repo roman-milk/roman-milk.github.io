@@ -1,5 +1,7 @@
-Tricking Twin Sister
-====================
+---
+layout: page
+title: Tricking Twin Sister
+---
 #1 
 
 ===

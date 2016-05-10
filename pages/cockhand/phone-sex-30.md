@@ -1,5 +1,7 @@
-Phone Sex
-=========
+---
+layout: page
+title: Phone Sex
+---
 #1 
 
 ===

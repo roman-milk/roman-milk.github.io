@@ -1,5 +1,7 @@
-Naughty Girl
-===================
+---
+layout: page
+title: Naughty Girl
+---
 #1 
 
 ===

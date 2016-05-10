@@ -1,5 +1,7 @@
-Tommy's Fantasy Fullfilled, sort of
-===================================
+---
+layout: page
+title: Tommy's Fantasy Fullfilled, sort of
+---
 #1 
 
 ===

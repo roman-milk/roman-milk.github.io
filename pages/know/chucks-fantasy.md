@@ -1,5 +1,7 @@
-Chuck's Fantasy
-======================
+---
+layout: page
+title: Chuck's Fantasy
+---
 #1 
 
 ===

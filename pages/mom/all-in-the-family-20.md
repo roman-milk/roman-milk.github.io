@@ -1,5 +1,7 @@
-All in the Family
-=================
+---
+layout: page
+title: All in the Family
+---
 #1 
 
 ===

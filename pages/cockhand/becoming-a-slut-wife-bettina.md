@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Bettina
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Bettina
+---
 #1 
 
 ===

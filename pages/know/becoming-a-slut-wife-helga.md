@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Helga
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Helga
+---
 #1 
 
 ===

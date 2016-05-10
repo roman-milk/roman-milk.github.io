@@ -1,5 +1,7 @@
-Tricia's Dirty Hole
-===================
+---
+layout: page
+title: Tricia's Dirty Hole
+---
 #1 
 
 ===

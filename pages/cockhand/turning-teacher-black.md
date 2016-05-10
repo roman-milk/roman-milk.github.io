@@ -1,5 +1,7 @@
-Turning Teacher Black
-=====================
+---
+layout: page
+title: Turning Teacher Black
+---
 #1 
 
 ===

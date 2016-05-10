@@ -1,5 +1,7 @@
-The Racist
-==========
+---
+layout: page
+title: The Racist
+---
 #1 
 
 ===

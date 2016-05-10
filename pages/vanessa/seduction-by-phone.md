@@ -1,5 +1,7 @@
-Seduction By Phone
-==================
+---
+layout: page
+title: Seduction By Phone
+---
 #1 
 
 ===

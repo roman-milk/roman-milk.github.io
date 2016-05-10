@@ -1,5 +1,7 @@
-First Kiss
-=================
+---
+layout: page
+title: First Kiss
+---
 #1 
 
 ===

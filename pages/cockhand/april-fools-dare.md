@@ -1,5 +1,7 @@
-April Fools Dare
-================
+---
+layout: page
+title: April Fools Dare
+---
 #1 
 
 ===

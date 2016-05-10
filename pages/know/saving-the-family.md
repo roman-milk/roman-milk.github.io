@@ -1,5 +1,7 @@
-Saving the Family
-=================
+---
+layout: page
+title: Saving the Family
+---
 #1 
 
 ===

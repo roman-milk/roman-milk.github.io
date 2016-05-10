@@ -1,5 +1,7 @@
-Irresistible Desires
-====================
+---
+layout: page
+title: Irresistible Desires
+---
 #1 
 
 ===

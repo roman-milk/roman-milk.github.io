@@ -1,5 +1,7 @@
-Ride Home
-=========
+---
+layout: page
+title: Ride Home
+---
 #1 
 
 ===

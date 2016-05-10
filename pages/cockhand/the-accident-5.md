@@ -1,5 +1,7 @@
-The Accident
-============
+---
+layout: page
+title: The Accident
+---
 #1 
 
 ===

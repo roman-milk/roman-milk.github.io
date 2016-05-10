@@ -1,5 +1,7 @@
-Bad Heather Revisited
-============================
+---
+layout: page
+title: Bad Heather Revisited
+---
 #1 
 
 ===

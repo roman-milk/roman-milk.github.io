@@ -1,5 +1,7 @@
-A Dish Best Served Cold
-=======================
+---
+layout: page
+title: A Dish Best Served Cold
+---
 #1 
 
 ===

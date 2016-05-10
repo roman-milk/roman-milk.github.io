@@ -1,5 +1,7 @@
-Accidental Gangbang
-===================
+---
+layout: page
+title: Accidental Gangbang
+---
 
 It seemed like a good idea at the time...that is what I said to my fiancé four hours later. 
 

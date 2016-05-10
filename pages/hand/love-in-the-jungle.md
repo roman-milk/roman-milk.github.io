@@ -1,5 +1,7 @@
-Love in the Jungle
-==================
+---
+layout: page
+title: Love in the Jungle
+---
 #1 
 
 ===

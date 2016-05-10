@@ -1,5 +1,7 @@
-We Love Mother
-==============
+---
+layout: page
+title: We Love Mother
+---
 #1 
 
 ===

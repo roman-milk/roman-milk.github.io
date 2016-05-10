@@ -1,5 +1,7 @@
-A Slut Visits
-=============
+---
+layout: page
+title: A Slut Visits
+---
 
 'Only a few minutes' I think to myself, busily tidying up the last few bits and pieces. Not that it's messy, but the nerves are making me use up some of my pent up energy. Better not waste that I smile to myself, not if this weekend goes to plan. 
 

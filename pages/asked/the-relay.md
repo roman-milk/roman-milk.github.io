@@ -1,5 +1,7 @@
-The Relay
-=========
+---
+layout: page
+title: The Relay
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Swimming with Carrie
-====================
+---
+layout: page
+title: Swimming with Carrie
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Old Jared Knows
-===============
+---
+layout: page
+title: Old Jared Knows
+---
 #1 
 
 ===

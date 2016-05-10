@@ -1,5 +1,7 @@
-Pauline's Anniversary
-=====================
+---
+layout: page
+title: Pauline's Anniversary
+---
 #1 
 
 ===

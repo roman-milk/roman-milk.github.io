@@ -1,5 +1,7 @@
-Making Mother My slut
-=====================
+---
+layout: page
+title: Making Mother My slut
+---
 #1 
 
 ===

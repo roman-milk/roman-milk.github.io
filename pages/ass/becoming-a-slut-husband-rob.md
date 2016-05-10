@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Rob
-============================
+---
+layout: page
+title: Becoming A Slut Husband: Rob
+---
 #1 
 
 ===

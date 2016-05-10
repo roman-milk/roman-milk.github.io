@@ -1,5 +1,7 @@
-My Hero
-=======
+---
+layout: page
+title: My Hero
+---
 #1 
 
 ===

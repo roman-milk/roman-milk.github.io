@@ -1,5 +1,7 @@
-Taking Jasmine Walker
-=====================
+---
+layout: page
+title: Taking Jasmine Walker
+---
 #1 
 
 ===

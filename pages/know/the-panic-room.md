@@ -1,5 +1,7 @@
-The Panic Room
-==============
+---
+layout: page
+title: The Panic Room
+---
 #1 
 
 ===

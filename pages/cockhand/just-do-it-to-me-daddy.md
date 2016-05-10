@@ -1,5 +1,7 @@
-Just Do It To Me, Daddy
-=======================
+---
+layout: page
+title: Just Do It To Me, Daddy
+---
 #1 
 
 ===

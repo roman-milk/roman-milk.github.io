@@ -1,5 +1,7 @@
-Rob's Revenge
-====================
+---
+layout: page
+title: Rob's Revenge
+---
 #1 
 
 ===

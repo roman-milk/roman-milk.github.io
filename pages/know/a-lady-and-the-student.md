@@ -1,5 +1,7 @@
-A Lady and the Student
-=============================
+---
+layout: page
+title: A Lady and the Student
+---
 #1 
 
 ===

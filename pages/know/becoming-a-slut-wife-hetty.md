@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Hetty
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Hetty
+---
 #1 
 
 ===

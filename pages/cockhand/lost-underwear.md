@@ -1,5 +1,7 @@
-Lost Underwear
-==============
+---
+layout: page
+title: Lost Underwear
+---
 #1 
 
 ===

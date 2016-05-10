@@ -1,5 +1,7 @@
-Dorthea
-=======
+---
+layout: page
+title: Dorthea
+---
 #1 
 
 ===

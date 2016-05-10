@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Sally
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Sally
+---
 #1 
 
 ===

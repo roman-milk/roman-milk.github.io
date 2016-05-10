@@ -1,5 +1,7 @@
-Moving On Up
-============
+---
+layout: page
+title: Moving On Up
+---
 #1 
 
 ===

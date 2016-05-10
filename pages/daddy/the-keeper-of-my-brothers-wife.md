@@ -1,5 +1,7 @@
-The Keeper of My Brother's Wife
-===============================
+---
+layout: page
+title: The Keeper of My Brother's Wife
+---
 #1 
 
 ===

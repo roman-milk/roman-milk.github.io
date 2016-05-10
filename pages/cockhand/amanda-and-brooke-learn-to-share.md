@@ -1,5 +1,7 @@
-Amanda &amp; Brooke Learn to Share
-==================================
+---
+layout: page
+title: Amanda &amp; Brooke Learn to Share
+---
 #1 
 
 ===

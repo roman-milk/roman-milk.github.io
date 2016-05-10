@@ -1,5 +1,7 @@
-Linda's Homecoming
-==================
+---
+layout: page
+title: Linda's Homecoming
+---
 #1 
 
 ===

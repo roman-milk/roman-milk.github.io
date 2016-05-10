@@ -1,5 +1,7 @@
-Miranda and Geraldine
-============================
+---
+layout: page
+title: Miranda and Geraldine
+---
 #1 
 
 ===

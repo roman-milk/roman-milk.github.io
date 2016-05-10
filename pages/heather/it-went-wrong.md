@@ -1,5 +1,7 @@
-It Went Wrong
-=============
+---
+layout: page
+title: It Went Wrong
+---
 #1 
 
 ===

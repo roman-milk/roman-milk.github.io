@@ -1,5 +1,7 @@
-The Phillips Family Curse
-================================
+---
+layout: page
+title: The Phillips Family Curse
+---
 #1 
 
 ===

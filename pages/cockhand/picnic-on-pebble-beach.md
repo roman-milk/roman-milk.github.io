@@ -1,5 +1,7 @@
-Picnic on Pebble Beach
-======================
+---
+layout: page
+title: Picnic on Pebble Beach
+---
 #1 
 
 ===

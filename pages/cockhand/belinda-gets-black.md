@@ -1,5 +1,7 @@
-Belinda Gets Black
-==================
+---
+layout: page
+title: Belinda Gets Black
+---
 #1 
 
 ===

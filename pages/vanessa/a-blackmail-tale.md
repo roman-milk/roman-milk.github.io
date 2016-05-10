@@ -1,5 +1,7 @@
-A Blackmail Tale
-=======================
+---
+layout: page
+title: A Blackmail Tale
+---
 #1 
 
 ===

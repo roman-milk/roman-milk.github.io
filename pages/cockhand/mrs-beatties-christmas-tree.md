@@ -1,5 +1,7 @@
-Mrs Beattie's Christmas Tree
-============================
+---
+layout: page
+title: Mrs Beattie's Christmas Tree
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Devil Wears Nada
-====================
+---
+layout: page
+title: The Devil Wears Nada
+---
 #1 
 
 ===

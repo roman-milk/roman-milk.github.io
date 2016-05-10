@@ -1,5 +1,7 @@
-Bukkake Box of Infinite Glory
-=============================
+---
+layout: page
+title: Bukkake Box of Infinite Glory
+---
 #1 
 
 ===

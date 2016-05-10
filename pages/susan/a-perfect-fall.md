@@ -1,5 +1,7 @@
-A Perfect Fall Pt. 01
-=====================
+---
+layout: page
+title: A Perfect Fall Pt. 01
+---
 #1 
 
 ===

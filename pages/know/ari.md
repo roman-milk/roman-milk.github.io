@@ -1,5 +1,7 @@
-Ari
-===
+---
+layout: page
+title: Ari
+---
 #1 
 
 ===

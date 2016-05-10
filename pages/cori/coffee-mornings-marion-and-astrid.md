@@ -1,5 +1,7 @@
-Coffee Mornings (Marion &amp; Astrid)
-=====================================
+---
+layout: page
+title: Coffee Mornings (Marion &amp; Astrid)
+---
 #1 
 
 ===

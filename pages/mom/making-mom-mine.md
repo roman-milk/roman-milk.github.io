@@ -1,5 +1,7 @@
-Making Mommy Mine
-=================
+---
+layout: page
+title: Making Mommy Mine
+---
 #1 
 
 ===

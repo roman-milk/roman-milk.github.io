@@ -1,5 +1,7 @@
-The Black Hat
-=============
+---
+layout: page
+title: The Black Hat
+---
 #1 
 
 ===

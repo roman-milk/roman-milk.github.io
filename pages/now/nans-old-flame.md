@@ -1,5 +1,7 @@
-Nan's Old Flame
-===============
+---
+layout: page
+title: Nan's Old Flame
+---
 #1 
 
 ===

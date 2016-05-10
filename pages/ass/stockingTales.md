@@ -1,5 +1,7 @@
-&quot;Stocking Tales&quot;: Boss's Pet
-======================================
+---
+layout: page
+title: &quot;Stocking Tales&quot;: Boss's Pet
+---
 #1 
 
 ===

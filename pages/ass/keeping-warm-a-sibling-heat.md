@@ -1,5 +1,7 @@
-Keeping Warm: A Sibling Heat
-============================
+---
+layout: page
+title: Keeping Warm: A Sibling Heat
+---
 #1 
 
 ===

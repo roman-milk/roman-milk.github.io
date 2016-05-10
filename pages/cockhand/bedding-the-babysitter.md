@@ -1,5 +1,7 @@
-Bedding the Babysitter
-======================
+---
+layout: page
+title: Bedding the Babysitter
+---
 #1 
 
 ===

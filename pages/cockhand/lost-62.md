@@ -1,5 +1,7 @@
-Lost
-====
+---
+layout: page
+title: Lost
+---
 #1 
 
 ===

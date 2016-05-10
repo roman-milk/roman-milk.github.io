@@ -1,5 +1,7 @@
-Making Scents
-====================
+---
+layout: page
+title: Making Scents
+---
 #1 
 
 ===

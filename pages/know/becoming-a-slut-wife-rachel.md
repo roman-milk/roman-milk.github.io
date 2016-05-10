@@ -1,5 +1,7 @@
-Becoming a Slut Wife Rachel
-===========================
+---
+layout: page
+title: Becoming a Slut Wife Rachel
+---
 #1 
 
 ===

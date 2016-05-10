@@ -1,5 +1,7 @@
-Coming and Going
-================
+---
+layout: page
+title: Coming and Going
+---
 #1 
 
 ===

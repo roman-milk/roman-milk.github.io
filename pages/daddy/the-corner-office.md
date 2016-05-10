@@ -1,5 +1,7 @@
-The Corner Office
-========================
+---
+layout: page
+title: The Corner Office
+---
 #1  
 
 ===

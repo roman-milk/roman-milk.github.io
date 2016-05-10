@@ -1,5 +1,7 @@
-A New Life
-==========
+---
+layout: page
+title: A New Life
+---
 #1 
 
 ===

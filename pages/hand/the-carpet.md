@@ -1,5 +1,7 @@
-The Carpet
-==========
+---
+layout: page
+title: The Carpet
+---
 #1 
 
 ===

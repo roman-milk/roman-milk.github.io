@@ -1,5 +1,7 @@
-A Weird One
-==================
+---
+layout: page
+title: A Weird One
+---
 #1 
 
 ===

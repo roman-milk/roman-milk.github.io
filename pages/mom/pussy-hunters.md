@@ -1,5 +1,7 @@
-Pussy Hunters
-=============
+---
+layout: page
+title: Pussy Hunters
+---
 #1 
 
 ===

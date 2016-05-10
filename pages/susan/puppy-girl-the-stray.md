@@ -1,5 +1,7 @@
-Puppy Girl: The Stray
-=====================
+---
+layout: page
+title: Puppy Girl: The Stray
+---
 #1 
 
 ===

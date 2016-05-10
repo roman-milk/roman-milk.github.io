@@ -1,5 +1,7 @@
-Eric Goes Black
-===============
+---
+layout: page
+title: Eric Goes Black
+---
 #1 
 
 ===

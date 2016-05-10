@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Anne-Marie
-================================
+---
+layout: page
+title: Becoming a Slut Wife: Anne-Marie
+---
 #1 
 
 ===

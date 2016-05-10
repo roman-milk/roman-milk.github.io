@@ -1,5 +1,7 @@
-Granny's Dirty Photographs
-==========================
+---
+layout: page
+title: Granny's Dirty Photographs
+---
 #1 
 
 ===

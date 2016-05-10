@@ -1,5 +1,7 @@
-First Time Dogging
-==================
+---
+layout: page
+title: First Time Dogging
+---
 #1 
 
 ===

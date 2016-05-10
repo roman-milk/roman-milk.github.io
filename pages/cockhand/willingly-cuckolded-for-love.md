@@ -1,5 +1,7 @@
-Willingly Cuckolded for Love
-============================
+---
+layout: page
+title: Willingly Cuckolded for Love
+---
 #1 
 
 ===

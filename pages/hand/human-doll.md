@@ -1,5 +1,7 @@
-Human Doll
-==========
+---
+layout: page
+title: Human Doll
+---
 #1 
 
 ===

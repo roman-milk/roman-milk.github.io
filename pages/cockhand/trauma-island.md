@@ -1,5 +1,7 @@
-Trauma Island
-=============
+---
+layout: page
+title: Trauma Island
+---
 #1 
 
 ===

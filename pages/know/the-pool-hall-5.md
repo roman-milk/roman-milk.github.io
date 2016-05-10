@@ -1,5 +1,7 @@
-The Pool Hall
-=============
+---
+layout: page
+title: The Pool Hall
+---
 #1 
 
 ===

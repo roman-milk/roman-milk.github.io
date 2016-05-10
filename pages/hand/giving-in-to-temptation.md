@@ -1,5 +1,7 @@
-Giving in to Temptation
-=======================
+---
+layout: page
+title: Giving in to Temptation
+---
 #1 
 
 ===

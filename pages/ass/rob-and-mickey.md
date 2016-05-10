@@ -1,5 +1,7 @@
-Rob and Mickey
-==============
+---
+layout: page
+title: Rob and Mickey
+---
 #1 
 
 ===

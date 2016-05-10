@@ -1,5 +1,7 @@
-Mary, Fred and the Gangster
-==================================
+---
+layout: page
+title: Mary, Fred and the Gangster
+---
 #1 
 
 ===

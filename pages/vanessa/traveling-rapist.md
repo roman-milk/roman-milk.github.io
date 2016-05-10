@@ -1,5 +1,7 @@
-Traveling Rapist - Lilly
-========================
+---
+layout: page
+title: Traveling Rapist - Lilly
+---
 #1 
 
 ===

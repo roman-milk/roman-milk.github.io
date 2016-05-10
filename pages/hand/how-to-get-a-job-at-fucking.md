@@ -1,5 +1,7 @@
-How to Get a Job at Fucking
-===========================
+---
+layout: page
+title: How to Get a Job at Fucking
+---
 #1 
 
 ===

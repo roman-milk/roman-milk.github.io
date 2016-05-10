@@ -1,5 +1,7 @@
-Punishment Weekend
-=========================
+---
+layout: page
+title: Punishment Weekend
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Hard Body's Continuing Education
-===========================================
+---
+layout: page
+title: The Hard Body's Continuing Education
+---
 #1 
 
 ===

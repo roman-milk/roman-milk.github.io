@@ -1,5 +1,7 @@
-The Van Ride
-============
+---
+layout: page
+title: The Van Ride
+---
 #1 
 
 ===

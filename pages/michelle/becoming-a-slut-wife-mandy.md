@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Mandy
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Mandy
+---
 #1 
 
 ===

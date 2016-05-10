@@ -1,5 +1,7 @@
-The Complete Submission
-==============================
+---
+layout: page
+title: The Complete Submission
+---
 #1 
 
 ===

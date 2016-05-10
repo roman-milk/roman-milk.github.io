@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Jake
-=============================
+---
+layout: page
+title: Becoming A Slut Husband: Jake
+---
 #1 
 
 ===

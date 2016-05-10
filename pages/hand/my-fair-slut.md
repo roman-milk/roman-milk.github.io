@@ -1,5 +1,7 @@
-My Fair Slut
-===================
+---
+layout: page
+title: My Fair Slut
+---
 #1 
 
 ===

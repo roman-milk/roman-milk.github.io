@@ -1,5 +1,7 @@
-Curiosity and the Pavel Sisters
-===============================
+---
+layout: page
+title: Curiosity and the Pavel Sisters
+---
 #1 
 
 ===

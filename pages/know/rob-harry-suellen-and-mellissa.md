@@ -1,5 +1,7 @@
-Rob, Harry, Suellen and Mellissa
-================================
+---
+layout: page
+title: Rob, Harry, Suellen and Mellissa
+---
 #1 
 
 ===

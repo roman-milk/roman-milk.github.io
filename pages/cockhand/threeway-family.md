@@ -1,5 +1,7 @@
-Threeway Family
-===============
+---
+layout: page
+title: Threeway Family
+---
 #1 
 
 ===

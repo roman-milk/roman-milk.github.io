@@ -1,5 +1,7 @@
-My Darling Husband
-==================
+---
+layout: page
+title: My Darling Husband
+---
 #1 
 
 ===

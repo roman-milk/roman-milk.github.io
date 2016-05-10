@@ -1,5 +1,7 @@
-Windows
-=======
+---
+layout: page
+title: Windows
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Alex
-==========================
+---
+layout: page
+title: Becoming a Slut Wife: Alex
+---
 #1 
 
 ===

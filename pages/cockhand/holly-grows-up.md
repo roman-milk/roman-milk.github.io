@@ -1,5 +1,7 @@
-Holly Grows Up
-==============
+---
+layout: page
+title: Holly Grows Up
+---
 #1 
 
 ===

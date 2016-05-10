@@ -1,5 +1,7 @@
-Heaven
-=============
+---
+layout: page
+title: Heaven
+---
 #1 
 
 ===

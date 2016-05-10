@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Marty
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Marty
+---
 #1 
 
 ===

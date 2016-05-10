@@ -1,5 +1,7 @@
-Poker Game
-==========
+---
+layout: page
+title: Poker Game
+---
 #1 
 
 ===

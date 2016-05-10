@@ -1,5 +1,7 @@
-Open Mike Night
-===============
+---
+layout: page
+title: Open Mike Night
+---
 #1 
 
 ===

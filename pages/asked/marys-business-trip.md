@@ -1,5 +1,7 @@
-Mary's Business Trip
-====================
+---
+layout: page
+title: Mary's Business Trip
+---
 #1 
 
 ===

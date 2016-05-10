@@ -1,5 +1,7 @@
-The Writer
-==========
+---
+layout: page
+title: The Writer
+---
 #1 
 
 ===

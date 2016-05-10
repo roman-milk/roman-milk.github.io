@@ -1,5 +1,7 @@
-Fixer-Upper
-===========
+---
+layout: page
+title: Fixer-Upper
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Aunt Maggie's Mistake
-=====================
+---
+layout: page
+title: Aunt Maggie's Mistake
+---
 #1 
 
 ===

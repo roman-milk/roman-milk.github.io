@@ -1,5 +1,7 @@
-Michelle and Jimmy
-==================
+---
+layout: page
+title: Michelle and Jimmy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Railway Slut Adventures
-==============================
+---
+layout: page
+title: Railway Slut Adventures
+---
 #1 
 
 ===

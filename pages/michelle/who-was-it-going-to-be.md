@@ -1,5 +1,7 @@
-Who Was It Going To Be?
-=======================
+---
+layout: page
+title: Who Was It Going To Be?
+---
 #1 
 
 ===

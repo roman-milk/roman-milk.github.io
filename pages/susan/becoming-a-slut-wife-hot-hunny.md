@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Hot Hunny
-===============================
+---
+layout: page
+title: Becoming a Slut Wife: Hot Hunny
+---
 #1 
 
 ===

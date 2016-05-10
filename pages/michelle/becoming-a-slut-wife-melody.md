@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Melody
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Melody
+---
 #1 
 
 ===

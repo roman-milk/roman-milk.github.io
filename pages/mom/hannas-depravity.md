@@ -1,5 +1,7 @@
-Hanna's Depravity
-=================
+---
+layout: page
+title: Hanna's Depravity
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Ballbuster
-==========
+---
+layout: page
+title: Ballbuster
+---
 #1 
 
 ===

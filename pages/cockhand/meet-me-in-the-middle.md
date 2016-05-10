@@ -1,5 +1,7 @@
-Meet Me in the Middle
-=====================
+---
+layout: page
+title: Meet Me in the Middle
+---
 #1 
 
 ===

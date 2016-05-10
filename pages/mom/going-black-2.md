@@ -1,5 +1,7 @@
-Going Black
-===========
+---
+layout: page
+title: Going Black
+---
 #1 
 
 ===

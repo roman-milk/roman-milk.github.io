@@ -1,5 +1,7 @@
-1974: A Summer of Incestuous Love
-=================================
+---
+layout: page
+title: 1974: A Summer of Incestuous Love
+---
 #1 
 
 ===

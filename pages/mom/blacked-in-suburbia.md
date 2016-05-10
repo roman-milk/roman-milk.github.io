@@ -1,5 +1,7 @@
-Blacked In Suburbia
-===================
+---
+layout: page
+title: Blacked In Suburbia
+---
 #1 
 
 ===

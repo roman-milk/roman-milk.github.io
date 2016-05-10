@@ -1,5 +1,7 @@
-Interview Techniques
-====================
+---
+layout: page
+title: Interview Techniques
+---
 #1 
 
 ===

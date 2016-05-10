@@ -1,5 +1,7 @@
-Chandra's Dates
-===============
+---
+layout: page
+title: Chandra's Dates
+---
 #1 
 
 ===

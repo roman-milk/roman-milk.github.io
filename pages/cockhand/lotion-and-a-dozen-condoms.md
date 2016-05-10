@@ -1,5 +1,7 @@
-Lotion and a Dozen Condoms
-==========================
+---
+layout: page
+title: Lotion and a Dozen Condoms
+---
 #1 
 
 ===

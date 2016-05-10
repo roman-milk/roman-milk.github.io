@@ -1,5 +1,7 @@
-V Day
-=====
+---
+layout: page
+title: V Day
+---
 #1 
 
 ===

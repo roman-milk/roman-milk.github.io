@@ -1,5 +1,7 @@
-Consent
-=======
+---
+layout: page
+title: Consent
+---
 #1 
 
 ===

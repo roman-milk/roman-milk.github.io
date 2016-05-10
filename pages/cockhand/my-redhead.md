@@ -1,5 +1,7 @@
-My Redhead
-==========
+---
+layout: page
+title: My Redhead
+---
 #1 
 
 ===

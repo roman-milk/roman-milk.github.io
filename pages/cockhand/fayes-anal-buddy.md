@@ -1,5 +1,7 @@
-Faye's Anal Buddy
-=================
+---
+layout: page
+title: Faye's Anal Buddy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Slut is Just a Four Letter Word
-===============================
+---
+layout: page
+title: Slut is Just a Four Letter Word
+---
 #1 
 
 ===

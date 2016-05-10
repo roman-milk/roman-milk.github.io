@@ -1,5 +1,7 @@
-The Key
-=======
+---
+layout: page
+title: The Key
+---
 #1 
 
 ===

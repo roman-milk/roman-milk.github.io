@@ -1,5 +1,7 @@
-You Shouldn't Be Here
-=====================
+---
+layout: page
+title: You Shouldn't Be Here
+---
 #1 
 
 ===

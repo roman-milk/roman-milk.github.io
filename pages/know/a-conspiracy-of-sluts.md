@@ -1,5 +1,7 @@
-A Conspiracy of Sluts 
-=====================
+---
+layout: page
+title: A Conspiracy of Sluts 
+---
 
 Twelve floors above the streets of Manhattan Paige was stalled on the cusp of escape. She fidgeted impotently with her purse while anxiously eyeing the narrowing entrance to the small, movable room. As the gap between the steel doors contracted she rocked forward on the balls of her feet to peek into the corridor. She spotted Doug. He was just outside her office, looking the other direction, towards the fire exit. She moved back a step and sighed with relief; he hadn't seen her. But, as the doors drew to within a few inches of each other, just as she was nearly free, a tiny arm thrust through the gap and broke the infrared safety beam. The doors stopped with a dull click. They began to open again. 
 

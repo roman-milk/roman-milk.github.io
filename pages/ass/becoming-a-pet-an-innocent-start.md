@@ -1,5 +1,7 @@
-Becoming a Pet: An Innocent Start
-=================================
+---
+layout: page
+title: Becoming a Pet: An Innocent Start
+---
 #1 
 
 ===

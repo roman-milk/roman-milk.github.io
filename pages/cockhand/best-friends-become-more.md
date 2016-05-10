@@ -1,5 +1,7 @@
-Best Friends Become More
-========================
+---
+layout: page
+title: Best Friends Become More
+---
 #1 
 
 ===

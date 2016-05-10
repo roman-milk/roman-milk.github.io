@@ -1,5 +1,7 @@
-Straight Housewife Blackmailed
-==============================
+---
+layout: page
+title: Straight Housewife Blackmailed
+---
 #1 
 
 ===

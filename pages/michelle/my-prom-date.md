@@ -1,5 +1,7 @@
-My Prom Date
-============
+---
+layout: page
+title: My Prom Date
+---
 #1 
 
 ===

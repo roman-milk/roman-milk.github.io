@@ -1,5 +1,7 @@
-The Craziest Sexy Love Story Ever
-=================================
+---
+layout: page
+title: The Craziest Sexy Love Story Ever
+---
 #1 
 
 ===

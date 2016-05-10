@@ -1,5 +1,7 @@
-Four Words
-=================
+---
+layout: page
+title: Four Words
+---
 #1 
 
 ===

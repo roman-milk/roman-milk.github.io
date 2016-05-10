@@ -1,5 +1,7 @@
-Daddy's Precious Present to Dani
-================================
+---
+layout: page
+title: Daddy's Precious Present to Dani
+---
 #1 
 
 ===

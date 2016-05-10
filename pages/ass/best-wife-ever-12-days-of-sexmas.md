@@ -1,5 +1,7 @@
-&quot;Best Wife Ever!&quot; 12 Days of Sexmas
-=============================================
+---
+layout: page
+title: &quot;Best Wife Ever!&quot; 12 Days of Sexmas
+---
 #1 
 
 ===

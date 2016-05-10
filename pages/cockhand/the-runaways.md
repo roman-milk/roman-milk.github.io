@@ -1,5 +1,7 @@
-The Runaways
-============
+---
+layout: page
+title: The Runaways
+---
 #1 
 
 ===

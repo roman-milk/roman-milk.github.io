@@ -1,5 +1,7 @@
-A Thong on the End of the World
-===============================
+---
+layout: page
+title: A Thong on the End of the World
+---
 #1 
 
 ===

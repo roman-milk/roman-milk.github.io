@@ -1,5 +1,7 @@
-The Set Up
-=================
+---
+layout: page
+title: The Set Up
+---
 #1 
 
 ===

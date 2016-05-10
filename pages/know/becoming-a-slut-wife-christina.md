@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Christina
-===============================
+---
+layout: page
+title: Becoming A Slut Wife: Christina
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-It Gets Nasty in Nice
-=====================
+---
+layout: page
+title: It Gets Nasty in Nice
+---
 #1 
 
 ===

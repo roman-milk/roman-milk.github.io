@@ -1,5 +1,7 @@
-The Boyfriend Test
-==================
+---
+layout: page
+title: The Boyfriend Test
+---
 #1 
 
 ===

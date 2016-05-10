@@ -1,5 +1,7 @@
-The Baby Carriage Tales
-==============================
+---
+layout: page
+title: The Baby Carriage Tales
+---
 #1 
 
 ===

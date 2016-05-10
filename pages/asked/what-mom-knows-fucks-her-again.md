@@ -1,5 +1,7 @@
-What Mom Knows Fucks Her Again
-==============================
+---
+layout: page
+title: What Mom Knows Fucks Her Again
+---
 #1 
 
 ===

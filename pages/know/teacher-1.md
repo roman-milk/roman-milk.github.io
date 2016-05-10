@@ -1,5 +1,7 @@
-Teacher
-==============
+---
+layout: page
+title: Teacher
+---
 #1 
 
 ===

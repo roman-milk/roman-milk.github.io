@@ -1,5 +1,7 @@
-The Huge Member
-===============
+---
+layout: page
+title: The Huge Member
+---
 #1 
 
 ===

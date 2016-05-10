@@ -1,5 +1,7 @@
-Danny
-============
+---
+layout: page
+title: Danny
+---
 #1 
 
 ===

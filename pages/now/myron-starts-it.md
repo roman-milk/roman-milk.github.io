@@ -1,5 +1,7 @@
-Myron Starts It
-===============
+---
+layout: page
+title: Myron Starts It
+---
 #1 
 
 ===

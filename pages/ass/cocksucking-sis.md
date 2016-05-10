@@ -1,5 +1,7 @@
-Cocksucking College Sister
-==========================
+---
+layout: page
+title: Cocksucking College Sister
+---
 #1 
 
 ===

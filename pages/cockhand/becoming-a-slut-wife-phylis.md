@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Phylis
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Phylis
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Milking Herd
-================
+---
+layout: page
+title: The Milking Herd
+---
 #1 
 
 ===

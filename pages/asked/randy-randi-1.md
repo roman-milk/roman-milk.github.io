@@ -1,5 +1,7 @@
-Randy Randi
-===========
+---
+layout: page
+title: Randy Randi
+---
 #1 
 
 ===

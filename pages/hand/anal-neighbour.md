@@ -1,5 +1,7 @@
-Anal Neighbour
-==============
+---
+layout: page
+title: Anal Neighbour
+---
 #1 
 
 ===

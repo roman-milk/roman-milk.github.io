@@ -1,5 +1,7 @@
-Harry Sadler's Deployment
-=========================
+---
+layout: page
+title: Harry Sadler's Deployment
+---
 #1 
 
 ===

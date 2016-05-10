@@ -1,5 +1,7 @@
-Coatrooms
-=========
+---
+layout: page
+title: Coatrooms
+---
 #1 
 
 ===

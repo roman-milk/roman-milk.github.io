@@ -1,5 +1,7 @@
-Housewife Bimbo
-======================
+---
+layout: page
+title: Housewife Bimbo
+---
 #1 
 
 ===

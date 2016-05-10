@@ -1,5 +1,7 @@
-The Ex Comes to Visit
-=====================
+---
+layout: page
+title: The Ex Comes to Visit
+---
 #1 
 
 ===

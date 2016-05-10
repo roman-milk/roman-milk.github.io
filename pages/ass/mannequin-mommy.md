@@ -1,5 +1,7 @@
-Mannequin Mommy
-===============
+---
+layout: page
+title: Mannequin Mommy
+---
 #1 
 
 ===

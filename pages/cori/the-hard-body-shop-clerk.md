@@ -1,5 +1,7 @@
-The Hard Body Shop Clerk
-========================
+---
+layout: page
+title: The Hard Body Shop Clerk
+---
 #1 
 
 ===

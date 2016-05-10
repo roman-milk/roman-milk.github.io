@@ -1,5 +1,7 @@
-Alpha Male Cuckold
-==================
+---
+layout: page
+title: Alpha Male Cuckold
+---
 #1 
 
 ===

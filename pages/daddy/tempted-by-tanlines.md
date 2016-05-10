@@ -1,5 +1,7 @@
-Tempted by Tanlines
-===================
+---
+layout: page
+title: Tempted by Tanlines
+---
 #1 
 
 ===

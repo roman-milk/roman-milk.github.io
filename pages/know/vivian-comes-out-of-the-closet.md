@@ -1,5 +1,7 @@
-Vivian Comes Out of the Closet
-==============================
+---
+layout: page
+title: Vivian Comes Out of the Closet
+---
 #1 
 
 ===

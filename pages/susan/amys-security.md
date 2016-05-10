@@ -1,5 +1,7 @@
-Amy's Security
-==============
+---
+layout: page
+title: Amy's Security
+---
 #1 
 
 ===

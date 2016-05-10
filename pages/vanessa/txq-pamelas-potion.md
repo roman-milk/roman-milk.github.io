@@ -1,5 +1,7 @@
-TxQ - Pamela's Potion
-=====================
+---
+layout: page
+title: TxQ - Pamela's Potion
+---
 #1 
 
 ===

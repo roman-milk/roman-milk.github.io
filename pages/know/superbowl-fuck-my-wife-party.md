@@ -1,5 +1,7 @@
-SuperBowl &quot;Fuck my Wife&quot; Party
-========================================
+---
+layout: page
+title: SuperBowl &quot;Fuck my Wife&quot; Party
+---
 #1 
 
 ===

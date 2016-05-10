@@ -1,5 +1,7 @@
-Nerd Girl at Faculty Stag Night
-===============================
+---
+layout: page
+title: Nerd Girl at Faculty Stag Night
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Talk with Daddy
-=================
+---
+layout: page
+title: A Talk with Daddy
+---
 #1 
 
 ===

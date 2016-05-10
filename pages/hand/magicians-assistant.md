@@ -1,5 +1,7 @@
-Magician's Assistant
-===========================
+---
+layout: page
+title: Magician's Assistant
+---
 #1 
 
 ===

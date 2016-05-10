@@ -1,5 +1,7 @@
-Bobbie and Bobby Revisited
-==========================
+---
+layout: page
+title: Bobbie and Bobby Revisited
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Breast Machine
-==================
+---
+layout: page
+title: The Breast Machine
+---
 #1 
 
 ===

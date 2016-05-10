@@ -1,5 +1,7 @@
-Sylvia Seduces
-==============
+---
+layout: page
+title: Sylvia Seduces
+---
 #1 
 
 ===

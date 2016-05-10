@@ -1,5 +1,7 @@
-Daddy's Such A Fucking Pervert
-==============================
+---
+layout: page
+title: Daddy's Such A Fucking Pervert
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Bad Day For All
-=================
+---
+layout: page
+title: A Bad Day For All
+---
 #1 
 
 ===

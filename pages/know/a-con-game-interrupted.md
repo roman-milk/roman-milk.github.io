@@ -1,5 +1,7 @@
-A Con Game Interrupted
-======================
+---
+layout: page
+title: A Con Game Interrupted
+---
 #1 
 
 ===

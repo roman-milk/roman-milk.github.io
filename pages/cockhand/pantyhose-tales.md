@@ -1,5 +1,7 @@
-Pantyhose Tales: Black Lez Sub
-==============================
+---
+layout: page
+title: Pantyhose Tales: Black Lez Sub
+---
 #1 
 
 ===

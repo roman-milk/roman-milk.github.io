@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Tammy
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Tammy
+---
 #1 
 
 ===

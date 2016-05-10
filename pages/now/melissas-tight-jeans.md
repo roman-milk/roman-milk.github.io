@@ -1,5 +1,7 @@
-Melissa's Tight Jeans
-=====================
+---
+layout: page
+title: Melissa's Tight Jeans
+---
 #1 
 
 ===

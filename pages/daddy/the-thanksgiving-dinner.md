@@ -1,5 +1,7 @@
-The Thanksgiving Dinner
-=======================
+---
+layout: page
+title: The Thanksgiving Dinner
+---
 #1 
 
 ===

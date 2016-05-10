@@ -1,5 +1,7 @@
-Robot Whore
-==================
+---
+layout: page
+title: Robot Whore
+---
 #1 
 
 ===

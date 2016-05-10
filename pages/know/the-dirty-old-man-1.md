@@ -1,5 +1,7 @@
-The Dirty Old Man
-=================
+---
+layout: page
+title: The Dirty Old Man
+---
 #1 
 
 ===

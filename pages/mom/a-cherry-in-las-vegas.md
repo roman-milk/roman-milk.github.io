@@ -1,5 +1,7 @@
-A Cherry in Las Vegas
-=====================
+---
+layout: page
+title: A Cherry in Las Vegas
+---
 #1 
 
 ===

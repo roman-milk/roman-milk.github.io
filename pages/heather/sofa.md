@@ -1,5 +1,7 @@
-Sofa
-====
+---
+layout: page
+title: Sofa
+---
 #1 
 
 ===

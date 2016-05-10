@@ -1,5 +1,7 @@
-Christmas Capture
-=================
+---
+layout: page
+title: Christmas Capture
+---
 #1 
 
 ===

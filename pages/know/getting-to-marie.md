@@ -1,5 +1,7 @@
-Getting To Marie
-================
+---
+layout: page
+title: Getting To Marie
+---
 #1 
 
 ===

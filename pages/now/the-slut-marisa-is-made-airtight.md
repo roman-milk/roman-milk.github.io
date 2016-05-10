@@ -1,5 +1,7 @@
-The Slut Marisa is Made Airtight
-================================
+---
+layout: page
+title: The Slut Marisa is Made Airtight
+---
 #1 
 
 ===

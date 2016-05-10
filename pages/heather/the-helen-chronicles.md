@@ -1,5 +1,7 @@
-The Helen Chronicles
-===========================
+---
+layout: page
+title: The Helen Chronicles
+---
 #1 
 
 ===

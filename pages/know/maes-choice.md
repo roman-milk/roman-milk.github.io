@@ -1,5 +1,7 @@
-Mae's Choice
-============
+---
+layout: page
+title: Mae's Choice
+---
 #1 
 
 ===

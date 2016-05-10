@@ -1,5 +1,7 @@
-Valentine's Day Threesome
-=========================
+---
+layout: page
+title: Valentine's Day Threesome
+---
 #1 
 
 ===

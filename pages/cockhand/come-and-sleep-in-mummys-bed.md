@@ -1,5 +1,7 @@
-Come and Sleep in Mummy's Bed
-=============================
+---
+layout: page
+title: Come and Sleep in Mummy's Bed
+---
 #1 
 
 ===

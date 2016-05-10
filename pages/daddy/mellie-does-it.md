@@ -1,5 +1,7 @@
-Mellie Does It
-==============
+---
+layout: page
+title: Mellie Does It
+---
 #1 
 
 ===

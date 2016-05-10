@@ -1,5 +1,7 @@
-Michelle's Story
-=======================
+---
+layout: page
+title: Michelle's Story
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Lesbian Polygamy: A Beginning
-=============================
+---
+layout: page
+title: Lesbian Polygamy: A Beginning
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Brian Was Bad
-=============
+---
+layout: page
+title: Brian Was Bad
+---
 #1 
 
 ===

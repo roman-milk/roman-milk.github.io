@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Sarah
-==================================
+---
+layout: page
+title: Becoming a Slut Wife: Sarah
+---
 #1 
 
 ===

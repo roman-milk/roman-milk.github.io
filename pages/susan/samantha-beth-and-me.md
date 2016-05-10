@@ -1,5 +1,7 @@
-Samantha, Beth and Me
-=====================
+---
+layout: page
+title: Samantha, Beth and Me
+---
 #1 
 
 ===

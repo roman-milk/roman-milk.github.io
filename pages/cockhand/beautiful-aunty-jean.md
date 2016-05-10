@@ -1,5 +1,7 @@
-Beautiful Aunty Jean
-====================
+---
+layout: page
+title: Beautiful Aunty Jean
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Two's Company, Three Is Just Greedy
-===================================
+---
+layout: page
+title: Two's Company, Three Is Just Greedy
+---
 #1 
 
 ===

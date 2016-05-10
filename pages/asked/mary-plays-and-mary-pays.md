@@ -1,5 +1,7 @@
-Mary Plays and Mary Pays
-========================
+---
+layout: page
+title: Mary Plays and Mary Pays
+---
 #1 
 
 ===

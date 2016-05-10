@@ -1,5 +1,7 @@
-Lisa Gets Dominated by Her Daughter
-===================================
+---
+layout: page
+title: Lisa Gets Dominated by Her Daughter
+---
 #1 
 
 ===

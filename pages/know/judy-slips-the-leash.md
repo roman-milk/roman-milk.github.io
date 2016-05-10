@@ -1,5 +1,7 @@
-Judy Slips the Leash
-====================
+---
+layout: page
+title: Judy Slips the Leash
+---
 #1 
 
 ===

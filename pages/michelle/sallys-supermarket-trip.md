@@ -1,5 +1,7 @@
-Sally's Supermarket Trip
-========================
+---
+layout: page
+title: Sally's Supermarket Trip
+---
 #1 
 
 ===

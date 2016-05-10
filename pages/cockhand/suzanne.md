@@ -1,5 +1,7 @@
-Suzanne
-==============
+---
+layout: page
+title: Suzanne
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-New Slut In Town
-================
+---
+layout: page
+title: New Slut In Town
+---
 #1 
 
 ===

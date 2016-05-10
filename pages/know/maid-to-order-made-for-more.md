@@ -1,5 +1,7 @@
-Maid to Order, Made for More
-============================
+---
+layout: page
+title: Maid to Order, Made for More
+---
 #1 
 
 ===

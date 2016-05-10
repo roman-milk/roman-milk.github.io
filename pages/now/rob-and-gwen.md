@@ -1,5 +1,7 @@
-Rob and Gwen
-============
+---
+layout: page
+title: Rob and Gwen
+---
 #1 
 
 ===

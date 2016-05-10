@@ -1,5 +1,7 @@
-Zoe's Medication
-================
+---
+layout: page
+title: Zoe's Medication
+---
 #1 
 
 ===

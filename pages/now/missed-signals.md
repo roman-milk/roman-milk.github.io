@@ -1,5 +1,7 @@
-Missed Signals
-==============
+---
+layout: page
+title: Missed Signals
+---
 #1 
 
 ===

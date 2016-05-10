@@ -1,5 +1,7 @@
-Black Cock: 1 Day Changes Everything
-====================================
+---
+layout: page
+title: Black Cock: 1 Day Changes Everything
+---
 #1 
 
 ===

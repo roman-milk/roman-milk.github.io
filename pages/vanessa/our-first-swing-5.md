@@ -1,5 +1,7 @@
-Our First Swing:...
-===================
+---
+layout: page
+title: Our First Swing:...
+---
 #1 
 
 ===

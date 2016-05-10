@@ -1,5 +1,7 @@
-Trina
-=====
+---
+layout: page
+title: Trina
+---
 #1 
 
 ===

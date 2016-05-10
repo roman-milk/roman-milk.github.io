@@ -1,5 +1,7 @@
-The Sweet Slut In Training
-=================================
+---
+layout: page
+title: The Sweet Slut In Training
+---
 #1 
 
 ===

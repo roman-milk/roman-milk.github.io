@@ -1,5 +1,7 @@
-Wife Enslaved
-====================
+---
+layout: page
+title: Wife Enslaved
+---
 #1 
 
 ===

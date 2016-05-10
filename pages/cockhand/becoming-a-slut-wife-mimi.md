@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mimi
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Mimi
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Stephanie Anne
-==============
+---
+layout: page
+title: Stephanie Anne
+---
 #1 
 
 ===

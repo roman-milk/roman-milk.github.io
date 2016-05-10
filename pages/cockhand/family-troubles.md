@@ -1,5 +1,7 @@
-Family Troubles
-===============
+---
+layout: page
+title: Family Troubles
+---
 #1 
 
 ===

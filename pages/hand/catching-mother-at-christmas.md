@@ -1,5 +1,7 @@
-Catching Mother at Christmas
-============================
+---
+layout: page
+title: Catching Mother at Christmas
+---
 #1 
 
 ===

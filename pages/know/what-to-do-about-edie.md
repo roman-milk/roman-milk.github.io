@@ -1,5 +1,7 @@
-What To Do About Edie
-=====================
+---
+layout: page
+title: What To Do About Edie
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Two Blondes
-===========
+---
+layout: page
+title: Two Blondes
+---
 #1 
 
 ===

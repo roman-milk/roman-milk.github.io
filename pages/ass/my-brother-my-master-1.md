@@ -1,5 +1,7 @@
-My Brother, My Master
-=====================
+---
+layout: page
+title: My Brother, My Master
+---
 #1 
 
 ===

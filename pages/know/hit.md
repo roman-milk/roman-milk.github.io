@@ -1,5 +1,7 @@
-Hit
-==========
+---
+layout: page
+title: Hit
+---
 #1 
 
 ===

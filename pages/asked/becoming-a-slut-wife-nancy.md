@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Nancy
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Nancy
+---
 #1 
 
 ===

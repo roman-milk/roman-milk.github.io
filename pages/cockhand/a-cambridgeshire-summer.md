@@ -1,5 +1,7 @@
-A Cambridgeshire Summer
-==============================
+---
+layout: page
+title: A Cambridgeshire Summer
+---
 #1 
 
 ===

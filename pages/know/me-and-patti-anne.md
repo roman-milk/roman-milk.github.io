@@ -1,5 +1,7 @@
-Me and Patti Anne
-=================
+---
+layout: page
+title: Me and Patti Anne
+---
 #1 
 
 ===

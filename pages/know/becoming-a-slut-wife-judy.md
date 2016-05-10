@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Judy
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Judy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Tradition
-=========
+---
+layout: page
+title: Tradition
+---
 #1 
 
 ===

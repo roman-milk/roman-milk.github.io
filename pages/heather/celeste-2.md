@@ -1,5 +1,7 @@
-Celeste
-=======
+---
+layout: page
+title: Celeste
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Inappropriate
-=============
+---
+layout: page
+title: Inappropriate
+---
 #1 
 
 ===

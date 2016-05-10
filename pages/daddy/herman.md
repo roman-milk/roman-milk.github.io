@@ -1,5 +1,7 @@
-Herman
-=============
+---
+layout: page
+title: Herman
+---
 #1 
 
 ===

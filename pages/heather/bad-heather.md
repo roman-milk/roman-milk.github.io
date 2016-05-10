@@ -1,5 +1,7 @@
-Bad Heather
-===========
+---
+layout: page
+title: Bad Heather
+---
 #1 
 
 ===

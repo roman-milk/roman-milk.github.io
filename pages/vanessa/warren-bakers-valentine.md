@@ -1,5 +1,7 @@
-Warren Baker's Valentine
-========================
+---
+layout: page
+title: Warren Baker's Valentine
+---
 #1 
 
 ===

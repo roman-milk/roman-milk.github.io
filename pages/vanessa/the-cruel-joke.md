@@ -1,5 +1,7 @@
-The Cruel Joke
-==============
+---
+layout: page
+title: The Cruel Joke
+---
 #1 
 
 ===

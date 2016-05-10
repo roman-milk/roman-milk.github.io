@@ -1,5 +1,7 @@
-Monica Ch. 01 of 02
-===================
+---
+layout: page
+title: Monica Ch. 01 of 02
+---
 #1 
 
 ===

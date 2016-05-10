@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Ripley
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Ripley
+---
 #1 
 
 ===

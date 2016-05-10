@@ -1,5 +1,7 @@
-Concubines
-==========
+---
+layout: page
+title: Concubines
+---
 #1 
 
 ===

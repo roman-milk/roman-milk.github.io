@@ -1,5 +1,7 @@
-A Night of Unconditional Submission
-===================================
+---
+layout: page
+title: A Night of Unconditional Submission
+---
 #1 
 
 ===

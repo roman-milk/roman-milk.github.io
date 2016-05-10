@@ -1,5 +1,7 @@
-Beach Bubble Butts
-==================
+---
+layout: page
+title: Beach Bubble Butts
+---
 #1 
 
 ===

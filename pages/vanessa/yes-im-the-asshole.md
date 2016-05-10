@@ -1,5 +1,7 @@
-Yes, I'm the Asshole
-====================
+---
+layout: page
+title: Yes, I'm the Asshole
+---
 #1 
 
 ===

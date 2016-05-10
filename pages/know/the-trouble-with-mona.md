@@ -1,5 +1,7 @@
-The Trouble with Mona
-=====================
+---
+layout: page
+title: The Trouble with Mona
+---
 #1 
 
 ===

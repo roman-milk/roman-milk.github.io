@@ -1,5 +1,7 @@
-Kristen Finally Fucks Daddy Pt. 05
-==================================
+---
+layout: page
+title: Kristen Finally Fucks Daddy Pt. 05
+---
 #1 
 
 ===

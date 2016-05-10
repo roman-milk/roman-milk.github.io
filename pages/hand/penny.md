@@ -1,5 +1,7 @@
-Penny
-============
+---
+layout: page
+title: Penny
+---
 #1 
 
 ===

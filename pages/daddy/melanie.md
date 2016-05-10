@@ -1,5 +1,7 @@
-Melanie
-==============
+---
+layout: page
+title: Melanie
+---
 #1 
 
 ===

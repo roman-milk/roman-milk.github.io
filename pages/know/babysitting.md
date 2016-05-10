@@ -1,5 +1,7 @@
-Babysitting
-==================
+---
+layout: page
+title: Babysitting
+---
 #1 
 
 ===

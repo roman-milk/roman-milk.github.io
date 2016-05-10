@@ -1,5 +1,7 @@
-A Neighborly Threesome
-======================
+---
+layout: page
+title: A Neighborly Threesome
+---
 #1 
 
 ===

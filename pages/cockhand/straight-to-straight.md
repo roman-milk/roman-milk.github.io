@@ -1,5 +1,7 @@
-Straight to...Straight?
-=======================
+---
+layout: page
+title: Straight to...Straight?
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Computer Virus
-==============
+---
+layout: page
+title: Computer Virus
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Carmen &amp; Little Nina
-========================
+---
+layout: page
+title: Carmen &amp; Little Nina
+---
 #1 
 
 ===

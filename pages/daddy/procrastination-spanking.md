@@ -1,5 +1,7 @@
-Procrastination Spanking
-========================
+---
+layout: page
+title: Procrastination Spanking
+---
 #1 
 
 ===

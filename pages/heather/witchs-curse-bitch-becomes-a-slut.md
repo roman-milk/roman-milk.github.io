@@ -1,5 +1,7 @@
-Witch's Curse: Bitch Becomes a Slut
-===================================
+---
+layout: page
+title: Witch's Curse: Bitch Becomes a Slut
+---
 #1 
 
 ===

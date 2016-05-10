@@ -1,5 +1,7 @@
-My Brother's New Slut
-=====================
+---
+layout: page
+title: My Brother's New Slut
+---
 #1 
 
 ===

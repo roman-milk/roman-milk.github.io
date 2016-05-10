@@ -1,5 +1,7 @@
-Wilma, Wilber and Elrod
-=======================
+---
+layout: page
+title: Wilma, Wilber and Elrod
+---
 #1 
 
 ===

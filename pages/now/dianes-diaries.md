@@ -1,5 +1,7 @@
-Diane's Diaries
-===============
+---
+layout: page
+title: Diane's Diaries
+---
 #1 
 
 ===

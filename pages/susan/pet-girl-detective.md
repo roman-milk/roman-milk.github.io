@@ -1,5 +1,7 @@
-Pet Girl Detective
-=========================
+---
+layout: page
+title: Pet Girl Detective
+---
 #1 
 
 ===

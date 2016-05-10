@@ -1,5 +1,7 @@
-The Personal Assistant
-======================
+---
+layout: page
+title: The Personal Assistant
+---
 #1 
 
 ===

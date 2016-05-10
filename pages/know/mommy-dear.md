@@ -1,5 +1,7 @@
-Mommy Dear
-==========
+---
+layout: page
+title: Mommy Dear
+---
 #1 
 
 ===

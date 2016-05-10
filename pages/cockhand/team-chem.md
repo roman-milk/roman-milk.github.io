@@ -1,5 +1,7 @@
-Team Chemistry
-=====================
+---
+layout: page
+title: Team Chemistry
+---
 #1 
 
 ===

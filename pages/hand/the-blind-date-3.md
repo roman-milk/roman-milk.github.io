@@ -1,5 +1,7 @@
-The Blind Date
-==============
+---
+layout: page
+title: The Blind Date
+---
 #1 
 
 ===

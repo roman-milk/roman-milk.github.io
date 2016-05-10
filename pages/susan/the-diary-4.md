@@ -1,5 +1,7 @@
-The Diary
-=========
+---
+layout: page
+title: The Diary
+---
 #1 
 
 ===

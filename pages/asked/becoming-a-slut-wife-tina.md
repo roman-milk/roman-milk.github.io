@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Tina
-==========================
+---
+layout: page
+title: Becoming a Slut Wife: Tina
+---
 #1 
 
 ===

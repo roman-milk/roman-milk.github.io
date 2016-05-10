@@ -1,5 +1,7 @@
-Teacher Undressed
-========================
+---
+layout: page
+title: Teacher Undressed
+---
 #1  
 
 ===

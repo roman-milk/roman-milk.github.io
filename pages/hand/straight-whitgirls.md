@@ -1,5 +1,7 @@
-Straight White Girls: An Inducing
-=================================
+---
+layout: page
+title: Straight White Girls: An Inducing
+---
 #1 
 
 ===

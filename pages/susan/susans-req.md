@@ -1,5 +1,7 @@
-Susan's Request
-===============
+---
+layout: page
+title: Susan's Request
+---
 #1 
 
 ===

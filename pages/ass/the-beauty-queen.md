@@ -1,5 +1,7 @@
-The Beauty Queen
-================
+---
+layout: page
+title: The Beauty Queen
+---
 #1 
 
 ===

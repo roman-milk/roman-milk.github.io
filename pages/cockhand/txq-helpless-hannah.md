@@ -1,5 +1,7 @@
-TxQ - Helpless Hannah
-=====================
+---
+layout: page
+title: TxQ - Helpless Hannah
+---
 #1 
 
 ===

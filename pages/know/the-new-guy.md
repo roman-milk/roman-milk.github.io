@@ -1,5 +1,7 @@
-The New Guy
-==================
+---
+layout: page
+title: The New Guy
+---
 #1 
 
 ===

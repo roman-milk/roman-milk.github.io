@@ -1,5 +1,7 @@
-Three Tales: Wifey, Girl And Hubby
-==================================
+---
+layout: page
+title: Three Tales: Wifey, Girl And Hubby
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Truth About Maggie
-======================
+---
+layout: page
+title: The Truth About Maggie
+---
 #1 
 
 ===

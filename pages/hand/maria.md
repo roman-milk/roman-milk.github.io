@@ -1,5 +1,7 @@
-Maria
-=====
+---
+layout: page
+title: Maria
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Coffee Mornings
-===============
+---
+layout: page
+title: Coffee Mornings
+---
 #1 
 
 ===

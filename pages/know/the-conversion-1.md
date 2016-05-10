@@ -1,5 +1,7 @@
-The Conversion
-==============
+---
+layout: page
+title: The Conversion
+---
 #1 
 
 ===

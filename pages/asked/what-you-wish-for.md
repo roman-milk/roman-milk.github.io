@@ -1,5 +1,7 @@
-What You Wish For
-=================
+---
+layout: page
+title: What You Wish For
+---
 #1 
 
 ===

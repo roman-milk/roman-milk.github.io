@@ -1,5 +1,7 @@
-Friend's Husband
-================
+---
+layout: page
+title: Friend's Husband
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Salon Sluts
-===========
+---
+layout: page
+title: Salon Sluts
+---
 #1 
 
 ===

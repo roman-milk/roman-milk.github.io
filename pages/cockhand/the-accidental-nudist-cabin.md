@@ -1,5 +1,7 @@
-The Accidental Nudist Cabin
-===========================
+---
+layout: page
+title: The Accidental Nudist Cabin
+---
 #1 
 
 ===

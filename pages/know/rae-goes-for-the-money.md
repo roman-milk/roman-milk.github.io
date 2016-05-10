@@ -1,5 +1,7 @@
-Rae Goes For The Money
-=============================
+---
+layout: page
+title: Rae Goes For The Money
+---
 #1 
 
 ===

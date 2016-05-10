@@ -1,5 +1,7 @@
-Bobbie and Bobby
-================
+---
+layout: page
+title: Bobbie and Bobby
+---
 #1 
 
 ===

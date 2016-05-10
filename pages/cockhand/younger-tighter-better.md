@@ -1,5 +1,7 @@
-Younger, Tighter, Better
-========================
+---
+layout: page
+title: Younger, Tighter, Better
+---
 #1 
 
 ===

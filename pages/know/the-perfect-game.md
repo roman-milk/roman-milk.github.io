@@ -1,5 +1,7 @@
-The Perfect Game
-================
+---
+layout: page
+title: The Perfect Game
+---
 #1 
 
 ===

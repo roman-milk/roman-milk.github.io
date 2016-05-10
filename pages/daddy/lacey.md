@@ -1,5 +1,7 @@
-What To Do When Lacey Is Out
-============================
+---
+layout: page
+title: What To Do When Lacey Is Out
+---
 #1 
 
 ===

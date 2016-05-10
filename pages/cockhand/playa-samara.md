@@ -1,5 +1,7 @@
-Playa Samara
-============
+---
+layout: page
+title: Playa Samara
+---
 #1 
 
 ===

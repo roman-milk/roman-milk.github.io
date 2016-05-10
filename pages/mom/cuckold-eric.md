@@ -1,5 +1,7 @@
-Cuckold Eric
-============
+---
+layout: page
+title: Cuckold Eric
+---
 #1 
 
 ===

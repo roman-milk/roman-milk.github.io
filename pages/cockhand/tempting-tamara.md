@@ -1,5 +1,7 @@
-Tempting Tamara
-===============
+---
+layout: page
+title: Tempting Tamara
+---
 #1 
 
 ===

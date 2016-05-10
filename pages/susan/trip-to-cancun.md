@@ -1,5 +1,7 @@
-Trip to Cancun
-==============
+---
+layout: page
+title: Trip to Cancun
+---
 #1 
 
 ===

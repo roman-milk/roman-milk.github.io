@@ -1,5 +1,7 @@
-Just Two Girls Out On The Town
-==============================
+---
+layout: page
+title: Just Two Girls Out On The Town
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming a Lesbian Slave
-========================
+---
+layout: page
+title: Becoming a Lesbian Slave
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Tastes Like Candy
-========================
+---
+layout: page
+title: Tastes Like Candy
+---
 #1 
 
 ===

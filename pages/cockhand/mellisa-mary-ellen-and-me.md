@@ -1,5 +1,7 @@
-Mellisa, Mary Ellen and Me
-=================================
+---
+layout: page
+title: Mellisa, Mary Ellen and Me
+---
 #1 
 
 ===

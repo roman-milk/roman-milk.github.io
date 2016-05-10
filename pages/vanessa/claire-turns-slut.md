@@ -1,5 +1,7 @@
-Claire Turns Slut
-=================
+---
+layout: page
+title: Claire Turns Slut
+---
 #1 
 
 ===

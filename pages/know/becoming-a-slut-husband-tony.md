@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Tony
-=============================
+---
+layout: page
+title: Becoming A Slut Husband: Tony
+---
 #1 
 
 ===

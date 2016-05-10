@@ -1,5 +1,7 @@
-Darrel's Hole Card
-==================
+---
+layout: page
+title: Darrel's Hole Card
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Barb's Dancer
-=============
+---
+layout: page
+title: Barb's Dancer
+---
 #1 
 
 ===

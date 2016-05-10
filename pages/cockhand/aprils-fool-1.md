@@ -1,5 +1,7 @@
-April's Fool
-============
+---
+layout: page
+title: April's Fool
+---
 #1 
 
 ===

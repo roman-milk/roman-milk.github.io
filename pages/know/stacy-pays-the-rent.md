@@ -1,5 +1,7 @@
-Stacy Pays The Rent
-===================
+---
+layout: page
+title: Stacy Pays The Rent
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Lois Myra and Me
-================
+---
+layout: page
+title: Lois Myra and Me
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Katy Kisses
-===========
+---
+layout: page
+title: Katy Kisses
+---
 #1 
 
 ===

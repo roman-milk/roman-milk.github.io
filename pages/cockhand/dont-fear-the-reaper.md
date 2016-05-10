@@ -1,5 +1,7 @@
-Don't Fear The Reaper
-=====================
+---
+layout: page
+title: Don't Fear The Reaper
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Melanie's Memoirs - A Married Slut 01
-=====================================
+---
+layout: page
+title: Melanie's Memoirs - A Married Slut 01
+---
 #1 
 
 ===

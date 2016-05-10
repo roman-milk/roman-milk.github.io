@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mickey
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Mickey
+---
 #1 
 
 ===

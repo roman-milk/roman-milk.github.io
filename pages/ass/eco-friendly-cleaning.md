@@ -1,5 +1,7 @@
-Eco-&quot;Friendly&quot; Cleaning
-=================================
+---
+layout: page
+title: Eco-&quot;Friendly&quot; Cleaning
+---
 #1 
 
 ===

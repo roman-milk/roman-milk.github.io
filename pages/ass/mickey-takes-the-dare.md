@@ -1,5 +1,7 @@
-Mickey Takes The Dare
-=====================
+---
+layout: page
+title: Mickey Takes The Dare
+---
 #1 
 
 ===

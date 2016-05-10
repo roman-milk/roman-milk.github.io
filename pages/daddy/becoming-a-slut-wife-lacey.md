@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Lacey
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Lacey
+---
 #1 
 
 ===

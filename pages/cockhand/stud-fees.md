@@ -1,5 +1,7 @@
-Stud Fees
-=========
+---
+layout: page
+title: Stud Fees
+---
 #1 
 
 ===

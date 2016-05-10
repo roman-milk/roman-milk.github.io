@@ -1,5 +1,7 @@
-Beth Glenda and Frank
-=====================
+---
+layout: page
+title: Beth Glenda and Frank
+---
 #1 
 
 ===

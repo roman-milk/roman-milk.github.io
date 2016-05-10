@@ -1,5 +1,7 @@
-The Publican's Daughter
-=======================
+---
+layout: page
+title: The Publican's Daughter
+---
 #1 
 
 ===

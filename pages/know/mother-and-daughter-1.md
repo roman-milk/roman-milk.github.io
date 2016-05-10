@@ -1,5 +1,7 @@
-Mother &amp; Daughter
-=====================
+---
+layout: page
+title: Mother &amp; Daughter
+---
 #1 
 
 ===

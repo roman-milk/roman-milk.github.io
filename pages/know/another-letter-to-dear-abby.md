@@ -1,5 +1,7 @@
-Another Letter to Dear Abby
-===========================
+---
+layout: page
+title: Another Letter to Dear Abby
+---
 #1 
 
 ===

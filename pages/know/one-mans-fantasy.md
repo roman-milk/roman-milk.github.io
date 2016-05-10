@@ -1,5 +1,7 @@
-One Man's Fantasy
-========================
+---
+layout: page
+title: One Man's Fantasy
+---
 #1 
 
 ===

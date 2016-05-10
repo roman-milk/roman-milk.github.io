@@ -1,5 +1,7 @@
-Playing with Cindy - The Beginning
-==================================
+---
+layout: page
+title: Playing with Cindy - The Beginning
+---
 #1 
 
 ===

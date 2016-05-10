@@ -1,5 +1,7 @@
-My Boss' Slut
-====================
+---
+layout: page
+title: My Boss' Slut
+---
 #1 
 
 ===

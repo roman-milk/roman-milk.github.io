@@ -1,5 +1,7 @@
-Saving Her Husband's Job
-===============================
+---
+layout: page
+title: Saving Her Husband's Job
+---
 #1 
 
 ===

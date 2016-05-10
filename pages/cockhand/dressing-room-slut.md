@@ -1,5 +1,7 @@
-Dressing Room Slut
-==================
+---
+layout: page
+title: Dressing Room Slut
+---
 #1 
 
 ===

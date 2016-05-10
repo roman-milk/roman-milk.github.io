@@ -1,5 +1,7 @@
-&quot;Oh&quot; Submission Town: A Mother Falls
-==============================================
+---
+layout: page
+title: &quot;Oh&quot; Submission Town: A Mother Falls
+---
 #1 
 
 ===

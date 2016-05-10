@@ -1,5 +1,7 @@
-The Making of a Slut
-===========================
+---
+layout: page
+title: The Making of a Slut
+---
 #1 
 
 ===

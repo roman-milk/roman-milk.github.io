@@ -1,5 +1,7 @@
-Becoming a Slut Husband: Bob
-============================
+---
+layout: page
+title: Becoming a Slut Husband: Bob
+---
 #1 
 
 ===

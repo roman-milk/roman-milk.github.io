@@ -1,5 +1,7 @@
-Cheat and Lie
-=============
+---
+layout: page
+title: Cheat and Lie
+---
 #1 
 
 ===

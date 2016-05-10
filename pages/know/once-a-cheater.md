@@ -1,5 +1,7 @@
-Once a Cheater...
-=================
+---
+layout: page
+title: Once a Cheater...
+---
 #1 
 
 ===

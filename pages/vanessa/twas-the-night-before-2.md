@@ -1,5 +1,7 @@
-Twas The Night Before...
-========================
+---
+layout: page
+title: Twas The Night Before...
+---
 #1 
 
 ===

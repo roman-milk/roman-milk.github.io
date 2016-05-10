@@ -1,5 +1,7 @@
-Bad Case of Cabin Fever
-=======================
+---
+layout: page
+title: Bad Case of Cabin Fever
+---
 #1 
 
 ===

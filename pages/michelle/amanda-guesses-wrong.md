@@ -1,5 +1,7 @@
-Amanda Guesses Wrong
-====================
+---
+layout: page
+title: Amanda Guesses Wrong
+---
 #1 
 
 ===

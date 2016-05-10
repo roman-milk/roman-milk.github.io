@@ -1,5 +1,7 @@
-DARK Submission: A Bisexual Journey
-===================================
+---
+layout: page
+title: DARK Submission: A Bisexual Journey
+---
 #1 
 
 ===

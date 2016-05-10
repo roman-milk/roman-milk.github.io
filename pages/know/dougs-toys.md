@@ -1,5 +1,7 @@
-Doug's Toys
-===========
+---
+layout: page
+title: Doug's Toys
+---
 #1 
 
 ===

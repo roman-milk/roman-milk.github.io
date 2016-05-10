@@ -1,5 +1,7 @@
-Department Store Scene
-======================
+---
+layout: page
+title: Department Store Scene
+---
 #1 
 
 ===

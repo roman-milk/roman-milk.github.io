@@ -1,5 +1,7 @@
-Good Girl vs. Slut
-=========================
+---
+layout: page
+title: Good Girl vs. Slut
+---
 #1 
 
 ===

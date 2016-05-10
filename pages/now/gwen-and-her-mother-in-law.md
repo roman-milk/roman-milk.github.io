@@ -1,5 +1,7 @@
-Gwen and Her Mother in Law
-==========================
+---
+layout: page
+title: Gwen and Her Mother in Law
+---
 #1 
 
 ===

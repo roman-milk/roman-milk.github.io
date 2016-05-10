@@ -1,5 +1,7 @@
-The Company Barb-B-Que
-======================
+---
+layout: page
+title: The Company Barb-B-Que
+---
 #1 
 
 ===

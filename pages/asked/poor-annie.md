@@ -1,5 +1,7 @@
-Poor Annie
-=================
+---
+layout: page
+title: Poor Annie
+---
 #1 
 
 ===

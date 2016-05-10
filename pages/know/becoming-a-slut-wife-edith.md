@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Edith
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Edith
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Popping Lisa's Cherry
-=====================
+---
+layout: page
+title: Popping Lisa's Cherry
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Carol
-===========================
+---
+layout: page
+title: Becoming a Slut Wife: Carol
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Finding Euphoria
-================
+---
+layout: page
+title: Finding Euphoria
+---
 #1 
 
 ===

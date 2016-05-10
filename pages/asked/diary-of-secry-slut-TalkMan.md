@@ -1,5 +1,7 @@
-Diary of a Secretary/Slut
-================================
+---
+layout: page
+title: Diary of a Secretary/Slut
+---
 
 I had been unemployed for eighteen months; due to the recession my previous employer decided to downsize and because I was 41 at the time, I was amongst the first to go. Finding another job at my age, considering the economic climate, was a nearly impossible task. My husband is a hard worker but his salary just wasn't enough to get us by, so we had been nibbling at our savings, which were now running out. While working some crummy temp jobs to get us by, I applied for dozens of positions with my spruced up resume, all in vain. Even though I had already considerably lowered my standards, I remained frustratingly unsuccessful. However, one Thursday, while returning from yet another botched interview, I found an unusual ad in a three-day old paper: Smithers & Hall, a consultancy firm, was looking for a "secretary/slut" to handle their paperwork, incoming phone calls and "other secretarial duties". Although a bit dodgy and questionable to say the least, I was in no position to be picky and since the address was on my way home, I decided to go and have a quick look. 
 

@@ -1,5 +1,7 @@
-Sex-Cult Initiation Chaperone
-=============================
+---
+layout: page
+title: Sex-Cult Initiation Chaperone
+---
 #1 
 
 ===

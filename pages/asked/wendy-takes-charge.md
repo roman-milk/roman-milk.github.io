@@ -1,5 +1,7 @@
-Wendy Takes Charge
-==================
+---
+layout: page
+title: Wendy Takes Charge
+---
 #1 
 
 ===

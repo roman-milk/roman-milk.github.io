@@ -1,5 +1,7 @@
-Losing It
-================
+---
+layout: page
+title: Losing It
+---
 #1 
 
 ===

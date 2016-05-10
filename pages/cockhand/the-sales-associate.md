@@ -1,5 +1,7 @@
-The Sales Associate Ch. 01-02
-=============================
+---
+layout: page
+title: The Sales Associate Ch. 01-02
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-What I Came Home To
-===================
+---
+layout: page
+title: What I Came Home To
+---
 #1 
 
 ===

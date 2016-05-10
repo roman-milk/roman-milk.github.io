@@ -1,5 +1,7 @@
-A Bolt of Love
-==============
+---
+layout: page
+title: A Bolt of Love
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Swingers Club: Halloween Party
-==============================
+---
+layout: page
+title: Swingers Club: Halloween Party
+---
 #1 
 
 ===

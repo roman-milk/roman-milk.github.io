@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Jennifer
-==============================
+---
+layout: page
+title: Becoming a Slut Wife: Jennifer
+---
 #1 
 
 ===

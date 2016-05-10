@@ -1,5 +1,7 @@
-I, Slave
-========
+---
+layout: page
+title: I, Slave
+---
 #1 
 
 ===

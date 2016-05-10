@@ -1,5 +1,7 @@
-Nadia Needs Her Step-Dad's Help
-===============================
+---
+layout: page
+title: Nadia Needs Her Step-Dad's Help
+---
 #1 
 
 ===

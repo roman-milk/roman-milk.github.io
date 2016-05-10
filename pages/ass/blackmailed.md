@@ -1,5 +1,7 @@
-Blackmailed into Black Submission
-=================================
+---
+layout: page
+title: Blackmailed into Black Submission
+---
 #1 
 
 ===

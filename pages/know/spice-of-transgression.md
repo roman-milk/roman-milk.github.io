@@ -1,5 +1,7 @@
-Spice of Transgression
-======================
+---
+layout: page
+title: Spice of Transgression
+---
 #1 
 
 ===

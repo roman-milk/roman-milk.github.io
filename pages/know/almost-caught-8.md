@@ -1,5 +1,7 @@
-Almost Caught!
-==============
+---
+layout: page
+title: Almost Caught!
+---
 #1 
 
 ===

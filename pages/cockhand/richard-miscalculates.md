@@ -1,5 +1,7 @@
-Richard Miscalculates
-=====================
+---
+layout: page
+title: Richard Miscalculates
+---
 #1 
 
 ===

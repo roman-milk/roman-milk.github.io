@@ -1,5 +1,7 @@
-Hurricane Gina
-==============
+---
+layout: page
+title: Hurricane Gina
+---
 #1 
 
 ===

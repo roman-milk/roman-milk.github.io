@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Toni
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Toni
+---
 #1 
 
 ===

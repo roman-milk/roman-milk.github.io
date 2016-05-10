@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Stasha
-============================
+---
+layout: page
+title: Becoming A Slut Wife: Stasha
+---
 #1 
 
 ===

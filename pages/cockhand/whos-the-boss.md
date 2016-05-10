@@ -1,5 +1,7 @@
-Who's The Boss?
-======================
+---
+layout: page
+title: Who's The Boss?
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Rachel's Mother: My Slut
-========================
+---
+layout: page
+title: Rachel's Mother: My Slut
+---
 #1 
 
 ===

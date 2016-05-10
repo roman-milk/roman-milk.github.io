@@ -1,5 +1,7 @@
-Tiffany
-=======
+---
+layout: page
+title: Tiffany
+---
 #1 
 
 ===

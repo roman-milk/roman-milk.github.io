@@ -1,5 +1,7 @@
-A Christmas Tart ... with a Heart
-=================================
+---
+layout: page
+title: A Christmas Tart ... with a Heart
+---
 #1 
 
 ===

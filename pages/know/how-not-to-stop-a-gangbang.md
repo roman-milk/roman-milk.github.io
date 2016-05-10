@@ -1,5 +1,7 @@
-How NOT to Stop a Gangbang
-==========================
+---
+layout: page
+title: How NOT to Stop a Gangbang
+---
 #1 
 
 ===

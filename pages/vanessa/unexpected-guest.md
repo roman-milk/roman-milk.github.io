@@ -1,5 +1,7 @@
-Unexpected Guest
-================
+---
+layout: page
+title: Unexpected Guest
+---
 #1 
 
 ===

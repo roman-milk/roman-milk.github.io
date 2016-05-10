@@ -1,5 +1,7 @@
-Lilac: Hot, 18, Horny, Relentless!
-==================================
+---
+layout: page
+title: Lilac: Hot, 18, Horny, Relentless!
+---
 #1 
 
 ===

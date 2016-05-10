@@ -1,5 +1,7 @@
-After the Party
-===============
+---
+layout: page
+title: After the Party
+---
 #1 
 
 ===

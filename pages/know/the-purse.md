@@ -1,5 +1,7 @@
-The Purse
-=========
+---
+layout: page
+title: The Purse
+---
 #1 
 
 ===

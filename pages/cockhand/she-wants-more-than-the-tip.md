@@ -1,5 +1,7 @@
-She Wants More than the Tip
-===========================
+---
+layout: page
+title: She Wants More than the Tip
+---
 #1 
 
 ===

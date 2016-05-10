@@ -1,5 +1,7 @@
-MILF Hunter: How It All Began
-=============================
+---
+layout: page
+title: MILF Hunter: How It All Began
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-White Sluts’ Club: Innocent Lawyer
-==================================
+---
+layout: page
+title: White Sluts’ Club: Innocent Lawyer
+---
 #1 
 
 ===

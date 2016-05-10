@@ -1,5 +1,7 @@
-The Trophy Wife
-===============
+---
+layout: page
+title: The Trophy Wife
+---
 #1 
 
 ===

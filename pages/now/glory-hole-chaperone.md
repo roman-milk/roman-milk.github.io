@@ -1,5 +1,7 @@
-Glory Hole Chaperone
-====================
+---
+layout: page
+title: Glory Hole Chaperone
+---
 #1 
 
 ===

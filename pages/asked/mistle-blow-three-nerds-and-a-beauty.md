@@ -1,5 +1,7 @@
-Mistle-Blow: Three Nerds and a Beauty
-=====================================
+---
+layout: page
+title: Mistle-Blow: Three Nerds and a Beauty
+---
 #1 
 
 ===

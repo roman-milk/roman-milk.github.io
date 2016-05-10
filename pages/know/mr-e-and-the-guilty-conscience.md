@@ -1,5 +1,7 @@
-Mr E and the Guilty Conscience
-==============================
+---
+layout: page
+title: Mr E and the Guilty Conscience
+---
 #1 
 
 ===

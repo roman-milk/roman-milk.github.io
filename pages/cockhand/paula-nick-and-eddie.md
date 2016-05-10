@@ -1,5 +1,7 @@
-Paula, Nick and Eddie
-=====================
+---
+layout: page
+title: Paula, Nick and Eddie
+---
 #1 
 
 ===

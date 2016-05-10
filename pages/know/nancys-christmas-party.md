@@ -1,5 +1,7 @@
-Nancy's Christmas Party
-=======================
+---
+layout: page
+title: Nancy's Christmas Party
+---
 #1 
 
 ===

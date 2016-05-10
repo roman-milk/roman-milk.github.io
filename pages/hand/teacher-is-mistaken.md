@@ -1,5 +1,7 @@
-Teacher Is Mistaken
-===================
+---
+layout: page
+title: Teacher Is Mistaken
+---
 #1  
 
 ===

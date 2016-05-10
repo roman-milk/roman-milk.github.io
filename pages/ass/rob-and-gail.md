@@ -1,5 +1,7 @@
-Rob and Gail
-============
+---
+layout: page
+title: Rob and Gail
+---
 #1 
 
 ===

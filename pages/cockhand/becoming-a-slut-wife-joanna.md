@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Joanna
-============================
+---
+layout: page
+title: Becoming a Slut Wife: Joanna
+---
 #1 
 
 ===

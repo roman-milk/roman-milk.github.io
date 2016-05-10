@@ -1,5 +1,7 @@
-Abby's Plan
-===========
+---
+layout: page
+title: Abby's Plan
+---
 #1 
 
 ===

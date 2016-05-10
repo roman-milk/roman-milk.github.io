@@ -1,5 +1,7 @@
-The Bad Doctor
-=====================
+---
+layout: page
+title: The Bad Doctor
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Room 123
-========
+---
+layout: page
+title: Room 123
+---
 #1 
 
 ===

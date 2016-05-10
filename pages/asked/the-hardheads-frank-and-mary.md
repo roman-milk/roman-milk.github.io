@@ -1,5 +1,7 @@
-The Hardheads: Frank and Mary
-=============================
+---
+layout: page
+title: The Hardheads: Frank and Mary
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Cock Report
-===============
+---
+layout: page
+title: The Cock Report
+---
 #1 
 
 ===

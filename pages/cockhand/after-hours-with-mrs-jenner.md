@@ -1,5 +1,7 @@
-After Hours with Mrs Jenner
-===========================
+---
+layout: page
+title: After Hours with Mrs Jenner
+---
 #1 
 
 ===

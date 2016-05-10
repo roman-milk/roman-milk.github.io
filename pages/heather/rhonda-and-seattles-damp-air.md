@@ -1,5 +1,7 @@
-Rhonda and Seattle's Damp Air
-=============================
+---
+layout: page
+title: Rhonda and Seattle's Damp Air
+---
 #1 
 
 ===

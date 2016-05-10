@@ -1,5 +1,7 @@
-Thirty Minutes or Free
-======================
+---
+layout: page
+title: Thirty Minutes or Free
+---
 #1 
 
 ===

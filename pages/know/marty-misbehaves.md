@@ -1,5 +1,7 @@
-Marty Misbehaves
-================
+---
+layout: page
+title: Marty Misbehaves
+---
 #1 
 
 ===

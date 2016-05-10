@@ -1,5 +1,7 @@
-The Denouncement
-=======================
+---
+layout: page
+title: The Denouncement
+---
 #1 
 
 ===

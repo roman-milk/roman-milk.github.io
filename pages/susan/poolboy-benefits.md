@@ -1,5 +1,7 @@
-Poolboy Benefits
-================
+---
+layout: page
+title: Poolboy Benefits
+---
 #1 
 
 ===

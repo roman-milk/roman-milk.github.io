@@ -1,5 +1,7 @@
-Mavis Gets Even
-===============
+---
+layout: page
+title: Mavis Gets Even
+---
 #1 
 
 ===

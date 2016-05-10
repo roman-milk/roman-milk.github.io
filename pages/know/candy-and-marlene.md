@@ -1,5 +1,7 @@
-Candy and Marlene
-=================
+---
+layout: page
+title: Candy and Marlene
+---
 
 #1 
 

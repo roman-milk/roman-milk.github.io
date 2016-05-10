@@ -1,5 +1,7 @@
-Spanked to Submission: A Novella
-================================
+---
+layout: page
+title: Spanked to Submission: A Novella
+---
 #1 
 
 ===

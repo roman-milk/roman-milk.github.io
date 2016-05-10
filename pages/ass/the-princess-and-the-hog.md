@@ -1,5 +1,7 @@
-The Princess and the Hog
-========================
+---
+layout: page
+title: The Princess and the Hog
+---
 #1 
 
 ===

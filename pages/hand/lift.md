@@ -1,5 +1,7 @@
-Lift
-====
+---
+layout: page
+title: Lift
+---
 #1 
 
 ===

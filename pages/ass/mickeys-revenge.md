@@ -1,5 +1,7 @@
-Mickey's Revenge
-================
+---
+layout: page
+title: Mickey's Revenge
+---
 #1 
 
 ===

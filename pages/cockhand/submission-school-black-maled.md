@@ -1,5 +1,7 @@
-Submission School: Black-Maled
-==============================
+---
+layout: page
+title: Submission School: Black-Maled
+---
 #1 
 
 ===

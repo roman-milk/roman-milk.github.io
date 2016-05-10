@@ -1,5 +1,7 @@
-Charlotte
-=========
+---
+layout: page
+title: Charlotte
+---
 #1 
 
 ===

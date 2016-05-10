@@ -1,5 +1,7 @@
-The Naughty Boy
-===============
+---
+layout: page
+title: The Naughty Boy
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Gift to Writers
-=================
+---
+layout: page
+title: A Gift to Writers
+---
 #1 
 
 ===

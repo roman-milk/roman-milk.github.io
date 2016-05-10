@@ -1,5 +1,7 @@
-The Naive Wife
-==============
+---
+layout: page
+title: The Naive Wife
+---
 #1 
 
 ===

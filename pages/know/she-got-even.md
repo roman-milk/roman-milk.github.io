@@ -1,5 +1,7 @@
-She Got Even
-============
+---
+layout: page
+title: She Got Even
+---
 #1 
 
 ===

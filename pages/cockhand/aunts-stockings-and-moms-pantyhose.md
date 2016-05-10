@@ -1,5 +1,7 @@
-Aunt's Stockings &amp; Mom's Pantyhose
-======================================
+---
+layout: page
+title: Aunt's Stockings &amp; Mom's Pantyhose
+---
 #1 
 
 ===

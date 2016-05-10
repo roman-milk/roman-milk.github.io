@@ -1,5 +1,7 @@
-Becoming a Drag Queen
-=====================
+---
+layout: page
+title: Becoming a Drag Queen
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Ruby's Medical Problem
-======================
+---
+layout: page
+title: Ruby's Medical Problem
+---
 #1 
 
 ===

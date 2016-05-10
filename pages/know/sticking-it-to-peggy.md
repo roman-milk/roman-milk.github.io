@@ -1,5 +1,7 @@
-Sticking it to Peggy
-====================
+---
+layout: page
+title: Sticking it to Peggy
+---
 #1 
 
 ===

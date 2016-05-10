@@ -1,5 +1,7 @@
-Curious Lorrie
-==============
+---
+layout: page
+title: Curious Lorrie
+---
 #1 
 
 ===

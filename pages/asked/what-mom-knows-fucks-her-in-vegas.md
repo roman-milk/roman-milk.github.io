@@ -1,5 +1,7 @@
-What Mom Knows Fucks Her In Vegas
-=================================
+---
+layout: page
+title: What Mom Knows Fucks Her In Vegas
+---
 #1 
 
 ===

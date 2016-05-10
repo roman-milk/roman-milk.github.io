@@ -1,5 +1,7 @@
-It Was Only a Blowjob
-============================
+---
+layout: page
+title: It Was Only a Blowjob
+---
 #1 
 
 ===

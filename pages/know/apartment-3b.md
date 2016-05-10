@@ -1,5 +1,7 @@
-Apartment 3B
-===================
+---
+layout: page
+title: Apartment 3B
+---
 #1 
 
 ===

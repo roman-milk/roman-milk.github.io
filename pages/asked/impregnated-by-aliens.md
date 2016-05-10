@@ -1,5 +1,7 @@
-Impregnated by Aliens
-=====================
+---
+layout: page
+title: Impregnated by Aliens
+---
 #1 
 
 ===

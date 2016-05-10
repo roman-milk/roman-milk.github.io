@@ -1,5 +1,7 @@
-Claire's Night Out
-==================
+---
+layout: page
+title: Claire's Night Out
+---
 #1 
 
 ===

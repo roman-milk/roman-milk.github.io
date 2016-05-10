@@ -1,5 +1,7 @@
-The Delayed Fantasy
-===================
+---
+layout: page
+title: The Delayed Fantasy
+---
 #1 
 
 ===

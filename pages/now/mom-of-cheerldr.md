@@ -1,5 +1,7 @@
-Mother of a Cheerleader
-=======================
+---
+layout: page
+title: Mother of a Cheerleader
+---
 #1 
 
 ===

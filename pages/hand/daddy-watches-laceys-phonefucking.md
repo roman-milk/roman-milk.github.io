@@ -1,5 +1,7 @@
-Daddy Watches Lacey's Phonefucking
-==================================
+---
+layout: page
+title: Daddy Watches Lacey's Phonefucking
+---
 #1 
 
 ===

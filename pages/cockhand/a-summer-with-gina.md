@@ -1,5 +1,7 @@
-A Summer with Gina
-==================
+---
+layout: page
+title: A Summer with Gina
+---
 #1 
 
 ===

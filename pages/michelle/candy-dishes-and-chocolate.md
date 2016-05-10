@@ -1,5 +1,7 @@
-Candy Dishes and Chocolate
-==========================
+---
+layout: page
+title: Candy Dishes and Chocolate
+---
 #1 
 
 ===

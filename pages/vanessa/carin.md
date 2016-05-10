@@ -1,5 +1,7 @@
-A Story for Carin
-=================
+---
+layout: page
+title: A Story for Carin
+---
 #1 
 
 ===

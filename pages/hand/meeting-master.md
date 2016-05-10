@@ -1,5 +1,7 @@
-Meeting Master
-==============
+---
+layout: page
+title: Meeting Master
+---
 #1 
 
 ===

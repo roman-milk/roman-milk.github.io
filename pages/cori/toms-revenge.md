@@ -1,5 +1,7 @@
-Tom's Revenge
-=============
+---
+layout: page
+title: Tom's Revenge
+---
 #1 
 
 ===

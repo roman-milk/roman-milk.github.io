@@ -1,5 +1,7 @@
-Tanya the Tart
-==============
+---
+layout: page
+title: Tanya the Tart
+---
 #1 
 
 ===

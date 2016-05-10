@@ -1,5 +1,7 @@
-The Worm Turns
-==============
+---
+layout: page
+title: The Worm Turns
+---
 #1 
 
 ===

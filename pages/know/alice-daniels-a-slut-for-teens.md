@@ -1,5 +1,7 @@
-Alice Daniels, A Slut for Teens
-===============================
+---
+layout: page
+title: Alice Daniels, A Slut for Teens
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Brooke
-=============
+---
+layout: page
+title: Brooke
+---
 #1 
 
 ===

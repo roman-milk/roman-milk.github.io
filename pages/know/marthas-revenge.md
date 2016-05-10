@@ -1,5 +1,7 @@
-Martha's Revenge
-================
+---
+layout: page
+title: Martha's Revenge
+---
 #1 
 
 ===

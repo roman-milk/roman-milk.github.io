@@ -1,5 +1,7 @@
-Friday Night At The Alhanbra
-============================
+---
+layout: page
+title: Friday Night At The Alhanbra
+---
 #1 
 
 ===

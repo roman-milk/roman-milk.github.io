@@ -1,5 +1,7 @@
-Take Me Dogging With You
-========================
+---
+layout: page
+title: Take Me Dogging With You
+---
 #1 
 
 ===

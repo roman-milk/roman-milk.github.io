@@ -1,5 +1,7 @@
-Me, My Slutwife &amp; Brian
-===========================
+---
+layout: page
+title: Me, My Slutwife &amp; Brian
+---
 #1 
 
 ===

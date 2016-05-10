@@ -1,5 +1,7 @@
-Baby Sit the Wife
-========================
+---
+layout: page
+title: Baby Sit the Wife
+---
 #1 
 
 ===

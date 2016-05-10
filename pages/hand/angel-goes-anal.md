@@ -1,5 +1,7 @@
-Angel Goes Anal
-===============
+---
+layout: page
+title: Angel Goes Anal
+---
 #1 
 
 ===

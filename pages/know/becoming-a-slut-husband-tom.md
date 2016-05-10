@@ -1,5 +1,7 @@
-Becoming A Slut Husband: Tom (1)
-================================
+---
+layout: page
+title: Becoming A Slut Husband: Tom (1)
+---
 #1 
 
 ===

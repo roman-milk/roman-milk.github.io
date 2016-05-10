@@ -1,5 +1,7 @@
-Daddy's Obsession
-=================
+---
+layout: page
+title: Daddy's Obsession
+---
 #1 
 
 ===

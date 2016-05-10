@@ -1,5 +1,7 @@
-DVD Night For The Boys
-======================
+---
+layout: page
+title: DVD Night For The Boys
+---
 #1 
 
 ===

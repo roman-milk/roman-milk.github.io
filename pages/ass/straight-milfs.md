@@ -1,5 +1,7 @@
-Straight MILFs: Boyfriend's Mom
-===============================
+---
+layout: page
+title: Straight MILFs: Boyfriend's Mom
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Neighborhood July 4th Celebration
-===================================
+---
+layout: page
+title: A Neighborhood July 4th Celebration
+---
 #1 
 
 ===

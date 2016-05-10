@@ -1,5 +1,7 @@
-Self-Righteous Bitch
-====================
+---
+layout: page
+title: Self-Righteous Bitch
+---
 #1 
 
 ===

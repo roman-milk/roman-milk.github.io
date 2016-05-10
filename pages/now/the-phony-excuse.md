@@ -1,5 +1,7 @@
-The Phony Excuse
-================
+---
+layout: page
+title: The Phony Excuse
+---
 #1 
 
 ===

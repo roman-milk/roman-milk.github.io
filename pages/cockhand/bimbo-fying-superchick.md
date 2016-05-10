@@ -1,5 +1,7 @@
-Bimbo-fying Superchick
-======================
+---
+layout: page
+title: Bimbo-fying Superchick
+---
 #1 
 
 ===

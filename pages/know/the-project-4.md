@@ -1,5 +1,7 @@
-The Project
-===========
+---
+layout: page
+title: The Project
+---
 #1 
 
 ===

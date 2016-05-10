@@ -1,5 +1,7 @@
-Dire Straits
-============
+---
+layout: page
+title: Dire Straits
+---
 #1 
 
 ===

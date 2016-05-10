@@ -1,5 +1,7 @@
-The Helping Hand
-================
+---
+layout: page
+title: The Helping Hand
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Katrina
-=============================
+---
+layout: page
+title: Becoming A Slut Wife: Katrina
+---
 #1 
 
 ===

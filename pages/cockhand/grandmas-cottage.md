@@ -1,5 +1,7 @@
-Grandma's Cottage
-=================
+---
+layout: page
+title: Grandma's Cottage
+---
 #1 
 
 ===

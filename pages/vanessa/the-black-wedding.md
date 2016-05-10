@@ -1,5 +1,7 @@
-The Black Wedding
-=================
+---
+layout: page
+title: The Black Wedding
+---
 #1 
 
 ===

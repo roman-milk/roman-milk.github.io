@@ -1,5 +1,7 @@
-Mystery Woman
-=============
+---
+layout: page
+title: Mystery Woman
+---
 #1 
 
 ===

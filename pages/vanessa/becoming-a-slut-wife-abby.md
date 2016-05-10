@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Abby
-==========================
+---
+layout: page
+title: Becoming A Slut Wife: Abby
+---
 #1 
 
 ===

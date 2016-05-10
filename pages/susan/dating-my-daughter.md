@@ -1,5 +1,7 @@
-Dating My Daughter
-==================
+---
+layout: page
+title: Dating My Daughter
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mary Beth
-=========
+---
+layout: page
+title: Mary Beth
+---
 #1 
 
 ===

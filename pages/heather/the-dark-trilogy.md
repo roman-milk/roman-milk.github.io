@@ -1,5 +1,7 @@
-The Dark Trilogy
-=======================
+---
+layout: page
+title: The Dark Trilogy
+---
 #1 
 
 ===

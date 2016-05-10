@@ -1,5 +1,7 @@
-Shelly's Man In A Million
-=========================
+---
+layout: page
+title: Shelly's Man In A Million
+---
 #1 
 
 ===

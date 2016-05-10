@@ -1,5 +1,7 @@
-Sunbathing Saturday
-===================
+---
+layout: page
+title: Sunbathing Saturday
+---
 #1 
 
 ===

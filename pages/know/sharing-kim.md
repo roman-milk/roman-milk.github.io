@@ -1,5 +1,7 @@
-Sharing Kim
-===========
+---
+layout: page
+title: Sharing Kim
+---
 #1 
 
 ===

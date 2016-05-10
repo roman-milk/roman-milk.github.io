@@ -1,5 +1,7 @@
-It All Began with a Munch
-=========================
+---
+layout: page
+title: It All Began with a Munch
+---
 #1 
 
 ===

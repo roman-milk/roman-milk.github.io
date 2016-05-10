@@ -1,5 +1,7 @@
-Pet Training: A Journey 2 Submission
-====================================
+---
+layout: page
+title: Pet Training: A Journey 2 Submission
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Mary Ellen, Meg and The Dildo
-=============================
+---
+layout: page
+title: Mary Ellen, Meg and The Dildo
+---
 #1 
 
 ===

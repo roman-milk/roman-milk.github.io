@@ -1,5 +1,7 @@
-Anal Analysis
-=============
+---
+layout: page
+title: Anal Analysis
+---
 #1 
 
 ===

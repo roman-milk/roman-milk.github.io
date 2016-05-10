@@ -1,5 +1,7 @@
-A Fall From Grace
-=================
+---
+layout: page
+title: A Fall From Grace
+---
 
 "Fucking oil spill," Victoria muttered, looking down from her office to the street below. "There must be 10,000 fucking protesters there. Sure, I gave the order. Sure, I fired the man who actually told me there was a problem. It's not like I expected the thing to blow and cause those deaths and this mess. Now to figure out how many more people I have to pay off." 
 

@@ -1,5 +1,7 @@
-A Question of Trust
-===================
+---
+layout: page
+title: A Question of Trust
+---
 #1 
 
 ===

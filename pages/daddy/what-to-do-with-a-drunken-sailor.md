@@ -1,5 +1,7 @@
-What to Do With a Drunken Sailor
-================================
+---
+layout: page
+title: What to Do With a Drunken Sailor
+---
 #1 
 
 ===

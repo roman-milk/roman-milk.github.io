@@ -1,5 +1,7 @@
-Glenda
-======
+---
+layout: page
+title: Glenda
+---
 #1 
 
 ===

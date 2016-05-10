@@ -1,5 +1,7 @@
-Karla - A Self Confessed Slut
-=============================
+---
+layout: page
+title: Karla - A Self Confessed Slut
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Girls Night Out
-===============
+---
+layout: page
+title: Girls Night Out
+---
 #1 
 
 ===

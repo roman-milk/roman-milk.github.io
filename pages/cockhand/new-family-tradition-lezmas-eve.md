@@ -1,5 +1,7 @@
-New Family Tradition: Lezmas Eve
-================================
+---
+layout: page
+title: New Family Tradition: Lezmas Eve
+---
 #1 
 
 ===

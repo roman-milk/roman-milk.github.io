@@ -1,5 +1,7 @@
-Evelyn's Nude Awakening
-=======================
+---
+layout: page
+title: Evelyn's Nude Awakening
+---
 #1 
 
 ===

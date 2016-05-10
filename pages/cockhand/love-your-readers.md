@@ -1,5 +1,7 @@
-Love Your Readers
-=================
+---
+layout: page
+title: Love Your Readers
+---
 #1 
 
 ===

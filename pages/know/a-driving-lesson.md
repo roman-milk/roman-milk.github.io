@@ -1,5 +1,7 @@
-A Driving Lesson
-================
+---
+layout: page
+title: A Driving Lesson
+---
 #1 
 
 ===

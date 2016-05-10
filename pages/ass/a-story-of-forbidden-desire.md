@@ -1,5 +1,7 @@
-A Story of Forbidden Desire
-===========================
+---
+layout: page
+title: A Story of Forbidden Desire
+---
 #1 
 
 ===

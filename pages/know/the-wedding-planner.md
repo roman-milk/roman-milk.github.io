@@ -1,5 +1,7 @@
-The Wedding Planner
-==========================
+---
+layout: page
+title: The Wedding Planner
+---
 #1 
 
 ===

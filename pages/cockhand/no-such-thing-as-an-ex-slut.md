@@ -1,5 +1,7 @@
-No Such Thing as an Ex-Slut
-==================================
+---
+layout: page
+title: No Such Thing as an Ex-Slut
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Bev's Night Out
-===============
+---
+layout: page
+title: Bev's Night Out
+---
 #1 
 
 ===

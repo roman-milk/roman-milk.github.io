@@ -1,5 +1,7 @@
-Blackmailing a Feminist Bitch
-=============================
+---
+layout: page
+title: Blackmailing a Feminist Bitch
+---
 #1 
 
 ===

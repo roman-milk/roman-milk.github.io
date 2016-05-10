@@ -1,5 +1,7 @@
-Getting to Know the Daughter in Law
-===================================
+---
+layout: page
+title: Getting to Know the Daughter in Law
+---
 #1 
 
 ===

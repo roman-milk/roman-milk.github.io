@@ -1,5 +1,7 @@
-The Conversation
-================
+---
+layout: page
+title: The Conversation
+---
 #1 
 
 ===

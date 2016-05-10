@@ -1,5 +1,7 @@
-Rob and Gina
-============
+---
+layout: page
+title: Rob and Gina
+---
 #1 
 
 ===

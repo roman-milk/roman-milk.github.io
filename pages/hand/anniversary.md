@@ -1,5 +1,7 @@
-Anniversary
-===========
+---
+layout: page
+title: Anniversary
+---
 #1 
 
 ===

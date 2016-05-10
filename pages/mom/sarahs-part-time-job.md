@@ -1,5 +1,7 @@
-Sarah's Part Time Job
-=====================
+---
+layout: page
+title: Sarah's Part Time Job
+---
 #1 
 
 ===

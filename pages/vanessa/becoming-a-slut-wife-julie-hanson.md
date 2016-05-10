@@ -1,5 +1,7 @@
-Becoming a Slut Wife: Julie Hanson
-==================================
+---
+layout: page
+title: Becoming a Slut Wife: Julie Hanson
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mother In Law
-===================================
+---
+layout: page
+title: Becoming A Slut Wife: Mother In Law
+---
 #1 
 
 ===

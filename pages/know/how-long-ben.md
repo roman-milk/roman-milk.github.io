@@ -1,5 +1,7 @@
-How Long Ben?
-=============
+---
+layout: page
+title: How Long Ben?
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Shave and a Haircut
-=====================
+---
+layout: page
+title: A Shave and a Haircut
+---
 #1 
 
 ===

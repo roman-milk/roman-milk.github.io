@@ -1,5 +1,7 @@
-Casandra's Guy
-==============
+---
+layout: page
+title: Casandra's Guy
+---
 #1 
 
 ===

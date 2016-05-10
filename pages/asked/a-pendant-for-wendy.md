@@ -1,5 +1,7 @@
-A Pendant for Wendy
-===================
+---
+layout: page
+title: A Pendant for Wendy
+---
 #1 
 
 ===

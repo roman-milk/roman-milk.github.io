@@ -1,5 +1,7 @@
-Adele's Problem
-===============
+---
+layout: page
+title: Adele's Problem
+---
 #1 
 
 ===

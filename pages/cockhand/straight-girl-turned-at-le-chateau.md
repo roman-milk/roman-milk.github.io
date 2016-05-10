@@ -1,5 +1,7 @@
-Straight Girl Turned at Le Chateau
-==================================
+---
+layout: page
+title: Straight Girl Turned at Le Chateau
+---
 #1 
 
 ===

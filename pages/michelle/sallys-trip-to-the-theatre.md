@@ -1,5 +1,7 @@
-Sally's Trip to the Theatre
-===========================
+---
+layout: page
+title: Sally's Trip to the Theatre
+---
 #1 
 
 ===

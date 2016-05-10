@@ -1,5 +1,7 @@
-&quot;Taking&quot; My Sister's Virginity
-========================================
+---
+layout: page
+title: &quot;Taking&quot; My Sister's Virginity
+---
 #1 
 
 ===

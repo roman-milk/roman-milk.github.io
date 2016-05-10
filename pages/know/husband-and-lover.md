@@ -1,5 +1,7 @@
-Husband and Lover
-=================
+---
+layout: page
+title: Husband and Lover
+---
 #1 
 
 ===

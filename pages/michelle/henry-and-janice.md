@@ -1,5 +1,7 @@
-Henry and Janice
-=======================
+---
+layout: page
+title: Henry and Janice
+---
 #1 
 
 ===

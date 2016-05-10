@@ -1,5 +1,7 @@
-The Wedding Reception
-=====================
+---
+layout: page
+title: The Wedding Reception
+---
 #1 
 
 ===

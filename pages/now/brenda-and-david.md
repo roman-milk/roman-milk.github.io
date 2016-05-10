@@ -1,5 +1,7 @@
-Brenda and David
-================
+---
+layout: page
+title: Brenda and David
+---
 #1 
 
 ===

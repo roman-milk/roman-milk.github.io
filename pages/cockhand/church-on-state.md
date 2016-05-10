@@ -1,5 +1,7 @@
-Church on State
-===============
+---
+layout: page
+title: Church on State
+---
 #1 
 
 ===

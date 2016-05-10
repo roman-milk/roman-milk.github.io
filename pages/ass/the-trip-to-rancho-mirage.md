@@ -1,5 +1,7 @@
-The Trip to Rancho Mirage
-=========================
+---
+layout: page
+title: The Trip to Rancho Mirage
+---
 #1 
 
 ===

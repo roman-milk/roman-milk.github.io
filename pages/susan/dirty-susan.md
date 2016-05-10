@@ -1,5 +1,7 @@
-Dirty Susan
-===========
+---
+layout: page
+title: Dirty Susan
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-My Di
-=====
+---
+layout: page
+title: My Di
+---
 
 ===
 

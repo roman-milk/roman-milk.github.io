@@ -1,5 +1,7 @@
-Vickie, The Baby &amp; Me
-=========================
+---
+layout: page
+title: Vickie, The Baby &amp; Me
+---
 #1 
 
 ===

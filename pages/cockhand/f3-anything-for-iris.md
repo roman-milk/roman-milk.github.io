@@ -1,5 +1,7 @@
-F3 Anything for Iris
-====================
+---
+layout: page
+title: F3 Anything for Iris
+---
 #1 
 
 ===

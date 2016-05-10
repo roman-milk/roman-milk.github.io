@@ -1,5 +1,7 @@
-The Unexpected
-==============
+---
+layout: page
+title: The Unexpected
+---
 #1 
 
 ===

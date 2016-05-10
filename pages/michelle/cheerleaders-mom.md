@@ -1,5 +1,7 @@
-Cheerleader's Mom: A Power Shift
-================================
+---
+layout: page
+title: Cheerleader's Mom: A Power Shift
+---
 
 Michelle walked to the laundry, bored and annoyed. 
 

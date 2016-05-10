@@ -1,5 +1,7 @@
-Randy's Revenge
-===============
+---
+layout: page
+title: Randy's Revenge
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-A Family Affair
-===============
+---
+layout: page
+title: A Family Affair
+---
 #1 
 
 ===

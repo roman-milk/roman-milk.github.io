@@ -1,5 +1,7 @@
-Camryn's Baby
-=============
+---
+layout: page
+title: Camryn's Baby
+---
 #1 
 
 ===

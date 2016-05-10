@@ -1,5 +1,7 @@
-The Last Dance
-==============
+---
+layout: page
+title: The Last Dance
+---
 #1 
 
 ===

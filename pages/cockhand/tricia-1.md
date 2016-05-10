@@ -1,5 +1,7 @@
-Tricia
-======
+---
+layout: page
+title: Tricia
+---
 #1 
 
 ===

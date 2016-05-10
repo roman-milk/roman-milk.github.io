@@ -1,5 +1,7 @@
-Target Practice
-===============
+---
+layout: page
+title: Target Practice
+---
 #1 
 
 ===

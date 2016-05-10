@@ -1,5 +1,7 @@
-Midnight Anal
-=============
+---
+layout: page
+title: Midnight Anal
+---
 #1 
 
 ===

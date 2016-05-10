@@ -1,5 +1,7 @@
-The Fat Cow
-===========
+---
+layout: page
+title: The Fat Cow
+---
 #1 
 
 ===

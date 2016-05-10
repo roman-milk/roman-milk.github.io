@@ -1,5 +1,7 @@
-The Benefits Man
-================
+---
+layout: page
+title: The Benefits Man
+---
 #1 
 
 ===

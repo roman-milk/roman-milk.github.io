@@ -1,5 +1,7 @@
-Maggie Misbehaves
-=================
+---
+layout: page
+title: Maggie Misbehaves
+---
 #1 
 
 ===

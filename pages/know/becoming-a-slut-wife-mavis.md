@@ -1,5 +1,7 @@
-Becoming A Slut Wife: Mavis
-===========================
+---
+layout: page
+title: Becoming A Slut Wife: Mavis
+---
 #1 
 
 ===

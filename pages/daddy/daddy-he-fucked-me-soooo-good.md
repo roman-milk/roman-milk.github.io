@@ -1,5 +1,7 @@
-Daddy, He Fucked Me SOOOO Good!
-===============================
+---
+layout: page
+title: Daddy, He Fucked Me SOOOO Good!
+---
 #1 
 
 ===

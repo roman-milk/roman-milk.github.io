@@ -1,5 +1,7 @@
-Jane's Story
-============
+---
+layout: page
+title: Jane's Story
+---
 #1 
 
 ===

@@ -1,5 +1,7 @@
-The Anniversary Dinner
-======================
+---
+layout: page
+title: The Anniversary Dinner
+---
 #1 
 
 ===

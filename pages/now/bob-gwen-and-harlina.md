@@ -1,5 +1,7 @@
-Bob Gwen and Harlina
-====================
+---
+layout: page
+title: Bob Gwen and Harlina
+---
 #1 
 
 ===

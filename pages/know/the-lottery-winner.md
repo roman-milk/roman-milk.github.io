@@ -1,5 +1,7 @@
-The Lottery Winner
-==================
+---
+layout: page
+title: The Lottery Winner
+---
 #1 
 
 ===
