@@ -1,3 +1,7 @@
+---
+title: Story
+---
+
 A Dash of Rum and Mum's Tits
 ============================
 #1 
