@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Becoming a Slut Wife: Adrianne
+title: Becoming a Slut Wife - Adrianne
 ---
 #1 
 
