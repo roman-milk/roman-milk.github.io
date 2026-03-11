@@ -2,7 +2,7 @@
 layout: page
 title: Index
 ---
-
+- [chyoa](pages/chyoa)           1
 - [asked](pages/asked)          53
 - [ass](pages/ass)              63
 - [cockhand](pages/cockhand)   249
