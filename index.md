@@ -2,6 +2,7 @@
 layout: page
 title: Index
 ---
+- [comix](pages/comix/)         30+
 - [chyoa](pages/chyoa)           1
 - [asked](pages/asked)          53
 - [ass](pages/ass)              63
