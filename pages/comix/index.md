@@ -25,13 +25,13 @@ title: Index
 | 18 | [Family Values 1 - An Unexpected Guest](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-1) | Evie, Country Girl, Auntie Carmilla |
 | 19 | [Family Values 2 - Game Night](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-2) | Evie, Violet, Freddie |
 | 20 | [Family Values 3 - Game On](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-3) | Evie, Freddy, Violet |
-| 21 | Meanwhile in Violet's Dungeon | Violet, Country Girl |
+| 21 | [Meanwhile in Violet's Dungeon](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Meanwhile-in-Violets-Dungeon) | Violet, Country Girl |
 | 22 | [Family Values 4 - On the Hook](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-4) | Evie, Freddy |
 | 23 | [Family Values 5 - Under her Heel](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-5) | Evie, Freddy |
 | 24 | [Family Values 6 - Below](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-6) | Evie, Freddy, Violet |
-| 25 | Brood of Evil | Evie, Lady Mircalla Le Fey, Fanny Templeton |
+| 25 | [Brood of Evil](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Brood-of-Evil) | Evie, Lady Mircalla Le Fey, Fanny Templeton |
 | 26 | [Family Values 7 - Cupid and the Devils](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-7) | Evie, Violet, Freddy, Auntie Carmilla, Leopold |
-| 27 | To Catch a Thief | Trixie, Nancy, Evie, Violet, and others |
+| 27 | [To Catch a Thief](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Nancy-Templeton-To-Catch-a-Thief) | Trixie, Nancy, Evie, Violet, and others |
 | 28 | [Family Values 8 - Full Load](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Family-Values/Issue-8) | ??? |
 | ?? | [A Kind of Magic](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/A-kind-of-magic) | Rory, Rose, Selene |
 | ?? | [Pirate Interrogation](https://comics.8muses.com/comics/album/Various-Authors/SleepyGimp/Pirate-Interrogation) | |
